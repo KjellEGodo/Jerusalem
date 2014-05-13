@@ -19,66 +19,116 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 
 
 ( scripts--
-( instructions-named:by:date:time:theInstructions-- ( thePurposeOfThisMergeFile )
-( kjell e godø )( 20140402 yyyymmdd )( 20:22 Seattle )
-self : This is the ( Jerusalem Merges ) file.  The ( Jerusalem Changes ) file is where the most frequent changes go.  
-self : this merges file is like a periodic backup of the changes file.  And if changes have to be undone then it serves as a trusted backup to roll back to and merge into. )
-( instructions-named:by:date:time:content-- ( HowToEditThisScriptCloud )
-( kjell e godø )( 20140402 yyyymmdd )( 20:12 Seattle ) 
-Here are the rules for how to edit self : this movie script cloud :
-Rule #1 : Don't delete anything.
-Rule #1 : Don't delete anything.
-Rule #1 : Don't delete anything.
-Rule #2 : If you want to delete something then enclose the words you want to delete in the following expression :
-( delete-named:by:date:time:beingDeleted-- ( thisIsTooDragonLike )( John Q Public )
-( 20140402 yyyymmdd )( 3:33 Oslo )
-...........thisIsTheStuffYouAreDeleting.......... )
-This way the deleted words are still there.
-Rule #3 : If you want to modify something then enclose the words you want to modify in the following expression :
-( modify-named:by:date:time:delete:add: ( kievIsTooBullyHere:softer )
-( John Q Public )( 20140402 yyyymmdd )( 3:33 Oslo )
-( ..........thisIsTheStuffYouWantToDelete............ )
-( ..........thisIsTheStuffYouWantToAdd................ ) )
-Rule #4 : If you want to add something then enclose the words you want to add in the following expression :
-( add-named:by:date:time:beingAdded-- 
-( auroraDialogAlternateThatAddsSofterSpinToMotivation435 )
-( John Q Public )( 20140402 yyyymmdd )( 3:33 Oslo )
-...........thisIsTheStuffYouAreAdding.......... )
-Rule #5 : If you want to comment on something then enclose the words you want in the comment into the following expression :
-( comment-named:by:date:time:theComment:anyReplies-- 
-( jusTWhatHasMotivation435GotToDoWithThis? )
-( John Q Public )( 20140402 yyyymmdd )( 3:33 Oslo )
-( ...........thisIsTheCommentYouAreAdding.......... )
-( .....aReplyCanGoHere...... )
-( .....aSecondReplyCanGoHere...... )
-( .....aThirdReplyCanGoHere...... )
-( .....etc..... ) )
-All the replies should be ( comment-named:by:date:time:theCom...  ... )
-style comments.
-Rule #6 : If you want to comment on something but you don't want any replies then enclose the words you want in the comment into the following expression :
-( comment-named:by:date:time:theCommentAndNoReplies--
-( jusTWhatHasMotivation435GotToDoWithThis? )
-( John Q Public )( 20140402 yyyymmdd )( 3:33 Oslo )
-...........thisIsTheCommentYouAreAdding.......... )
-You should be ready to insert editing expressions like the delete modify add and comment expressions shown above into any other expressions including your own and those editing expressions created by others.  Be the golden rule please.  Don't be like those hypokreets who want to live evil but think the golden rule should always apply to themselves and who become very offended if it ever doesn't.
-( dialog-setting:dialog-- ( theGoodTheBadAndTheUgly ) 
-( Tooko : you lied to me! )
-( K-lint : isn't lying what we are about?  ... Then why do you resist it?  Are you a hypokreet? 
-If you are going to be evil then be evil don't be evil and good at the same time.  )( Tooko : ... 
-- Well how is that going to work?.  )
-( K-lint : ...exactly.  If there is no good in us then we will all just be destroyed.  To the last man standing.  
-... - What? )( Tooko : appologize and then repent.  Give up what you gained by that dirty lie you told. 
-( gesture-- Tooko crosses himself ) 
-Do It Now ( gesture-- clickClack ) )
-( K-lint : ... ( gesture-- looks up at Tooko slight smile ) Anything you say Tooko.  Anything you say ) )<---[ dialog ]
-)<---[ instructions ]
-    ( AScript-named:copyrightBy:-- ( jerusalem 1 )
-        ( authors--
-( AnAuthor-name:activePeriods: ( copyright kjell e godø )( ( start:end: 20140205 notYet ) ) ) )
-        ( characters--
-( ACharacterSpec-named:copyrightBy:spec: ( rad )( copyright kjell e godø )( initially patterned after rad ( needs a different name ). He is a black smith. ) )
-( ACharacterSpec-named:copyrightBy:spec: ( lynn )( copyright kjell e godø )( initially patterned after lynn ( needs a different name ) ) )
-( ACharacterSpec-named:copyrightBy:spec: ( kiev )( copyright kjell e godø )( kiev is an high functioning autistic spectrum black smith christian amish young man 18 to 22 quite buff like a body builder.  he gets interested in astronomy.  and he is looking at the stars one night through a home made telescope that he somehow cobbled together from some vague sketches in a library book.  he has been working on it for a long long time and it just barely works.  he gets very blocked by failure but somehow keeps going after a while but it's frightfully slow work.  a vague dream that keeps coming.  and one night when he is looking up at the warped barely magnified bright specs in the sky one of the stars disappears for about 5 minutes and then comes back again.  He tries to tell people but nobody remotely believes him except for scott.  This baffles him for a while.  And then he starts trying to grind glass even more to the point that it makes his black smithing suffer.  And he keeps trying to tell people.  To the point that the synthetic elders searches for and finds an open source synthetic human compilation program in one of the databases in his head in one of the forgotten corners.  and he adjusts the default settings a bit in the course of an afternoon and creates aurora in order to distract kiev and stop him grinding glass all the time.  he makes her hard to get.  maybe that will key the young women in the audience.  So there is a boy sees girl boy can't do anything about it boy loses all hope boy gets girl boy loses girl boy goes on quest to get girl back boy gets girl back the end opportunity.  except that it isn't the end.  and they don't blow up into acrimony as so often is the case in these things.  no they get funny instead.  and they hit rough patches but the wisdom baked into her open source programming helps them get out of it.  and his dna helps some too.  so aurora is set up to distract kiev which works too well.  the elder gives her some basic subconscious proclivities that she can't see.  but they drive her personality and choices to a large degree.  eventually she finds out that she is synthetic when another synthetic tells her and then she can see all the programming constraints that were put into her.  because he tells her how to unlock them in order to prove it to her.  she goes running away she won't believe it and he yells something after her telling her how to unlock it.  she won't listen and she runs away from it as fast as she can and squeezes it out of her mind.  but at some point she needs it or wants it or it just keeps coming up in her mind and one morning when they wake up she just accesses it and unlocks it or there is a big blow up that needs it in the knick of time ?  no i don't want to do that.  she just does it one morning.  maybe there is a nagging problem off in the distance that is coming and they can't stop it and there is no way out.  and so.  she keeps thinking about it.  it keeps coming up in her mind.  she keeps wondering about it.  and finally she accesses it and unlocks it and somehow that gets them out of their jam.  she was the leader of them before but now she is the leader of herself.  the ceo.  she can break her old personality and choose a new one on the spot and choose how long it will take to take effect.  perhaps the rules can be displayed onto her vision point of view like in terminator to some extent.  does she hold onto the old personality constraints?  as what she has always known?  or does she delete all and write something new.  a new personality.  perhaps she is afraid of something.  and that thing is shutting her down.  and that fear was placed there by the elder the madmen.  and she erases it.  and replaces it.  and then she is able to stand up without the fear and a bunch of amazing things happen.  she walks right through a bunch of stuff without looking at the bullets flying all around her like patton might do on the battle field.  like in the lone wolf with cub books. ) ) )
+  ( instructions-named:by:date:time:theInstructions-- ( thePurposeOfThisFile )
+    ( kjell e godø )( 20140402 yyyymmdd )( 20:22 Seattle )
+    self : This is the ( JerusalemCloudOfMovieScriptsIdeas ) file. )
+  ( instructions-named:by:date:time:content-- ( HowToEditThisScriptCloud )
+    ( kjell e godø )( 20140402 yyyymmdd )( 20:12 Seattle ) 
+    Here are the rules for how to edit self : this movie script cloud :
+    Rule #1 : Don't delete anything.
+    Rule #1 : Don't delete anything.
+    Rule #1 : Don't delete anything.
+    Rule #2 : If you want to delete something then enclose the words you want to delete in the following expression :
+    ( delete-named:by:date:time:beingDeleted-- ( thisIsTooDragonLike )( John Q Public )
+      ( 20140402 yyyymmdd )( 3:33 Oslo )
+      ...........thisIsTheStuffYouAreDeleting.......... )
+    This way the deleted words are still there.
+    Rule #3 : If you want to modify something then enclose the words you want to modify in the following expression :
+    ( modify-named:by:date:time:delete:add: ( kievIsTooBullyHere:softer )
+      ( John Q Public )( 20140402 yyyymmdd )( 3:33 Oslo )
+      ( ..........thisIsTheStuffYouWantToDelete............ )
+      ( ..........thisIsTheStuffYouWantToAdd................ ) )
+    Rule #4 : If you want to add something then enclose the words you want to add in the following expression :
+    ( add-named:by:date:time:beingAdded-- 
+      ( auroraDialogAlternateThatAddsSofterSpinToMotivation435 )
+      ( John Q Public )( 20140402 yyyymmdd )( 3:33 Oslo )
+      ...........thisIsTheStuffYouAreAdding.......... )
+    Rule #5 : If you want to comment on something then enclose the words you want in the comment into the
+    following expression :
+    ( comment-named:by:date:time:theComment:anyReplies-- 
+      ( jusTWhatHasMotivation435GotToDoWithThis? )
+      ( John Q Public )( 20140402 yyyymmdd )( 3:33 Oslo )
+      ( ...........thisIsTheCommentYouAreAdding.......... )
+      ( .....aReplyCanGoHere...... )
+      ( .....aSecondReplyCanGoHere...... )
+      ( .....aThirdReplyCanGoHere...... )
+      ( .....etc..... ) )
+    All the replies should be ( comment-named:by:date:time:theCom...  ... )
+    style comments.
+    Rule #6 : If you want to comment on something but you don't want any replies then enclose the words you 
+    want in the comment into the following expression :
+    ( comment-named:by:date:time:theCommentAndNoReplies--
+      ( jusTWhatHasMotivation435GotToDoWithThis? )
+      ( John Q Public )( 20140402 yyyymmdd )( 3:33 Oslo )
+      ...........thisIsTheCommentYouAreAdding.......... )
+    You should be ready to insert editing expressions like the delete modify add and comment expressions shown 
+    above into any other expressions including your own and those editing expressions created by others.  Be the
+    golden rule please.  Don't be like those hypokreets who want to live evil but think the golden rule should 
+    always apply to themselves and who become very offended if it ever doesn't.
+    ( dialog-setting:dialog-- ( theGoodTheBadAndTheUgly ) 
+      ( Tooko : you lied to me! )
+      ( K-lint : isn't lying what we are about?  ... Then why do you resist it?  Are you a hypokreet? 
+        If you are going to be evil then be evil don't be evil and good at the same time.  )
+      ( Tooko : ... 
+        - Well how is that going to work?.  )
+      ( K-lint : ...exactly.  If there is no good in us then we will all just be destroyed.  To the last man standing.  
+        ... - What? )
+      ( Tooko : appologize and then repent.  Give up what you gained by that dirty lie you told. 
+        ( gesture-- Tooko crosses himself ) 
+        Do It Now ( gesture-- clickClack ) )
+      ( K-lint : ... ( gesture-- looks up at Tooko slight smile ) Anything you say Tooko.  Anything you say ) 
+    )<---[ dialog ]
+  )<---[ instructions ]
+
+  ( AScript-named:copyrightBy:-- ( jerusalem )
+
+    ( authors--
+      ( AnAuthor-name:activePeriods: ( copyright kjell e godø )( ( start:end: 20140205 notYet ) ) )
+    )<---[ authors ]
+
+    ( characters--
+      ( ACharacterSpec-named:copyrightBy:spec: ( rad )( copyright kjell e godø )
+        ( initially patterned after rad ( needs a different name ). He is a black smith. ) )
+      ( ACharacterSpec-named:copyrightBy:spec: ( lynn )( copyright kjell e godø )( initially patterned after lynn 
+        ( needs a different name ) ) )
+      ( ACharacterSpec-named:copyrightBy:spec: ( kiev )( copyright kjell e godø )( kiev is an high functioning 
+        autistic spectrum black smith christian amish young man 18 to 22 quite buff like a body builder.  he gets 
+        interested in astronomy.  and he is looking at the stars one night through a home made telescope that he 
+        somehow cobbled together from some vague sketches in a library book.  he has been working on it for a long 
+        long time and it just barely works.  he gets very blocked by failure but somehow keeps going after a while 
+        but it's frightfully slow work.  a vague dream that keeps coming.  and one night when he is looking up at 
+        the warped barely magnified bright specs in the sky one of the stars disappears for about 5 minutes and 
+        then comes back again.  He tries to tell people but nobody remotely believes him except for scott.  This 
+        baffles him for a while.  And then he starts trying to grind glass even more to the point that it makes 
+        his black smithing suffer.  And he keeps trying to tell people.  To the point that the synthetic elders 
+        searches for and finds an open source synthetic human compilation program in one of the databases in his 
+        head in one of the forgotten corners.  and he adjusts the default settings a bit in the course of an 
+        afternoon and creates aurora in order to distract kiev and stop him grinding glass all the time.  he makes 
+        her hard to get.  maybe that will key the young women in the audience.  So there is a boy sees girl boy 
+        can't do anything about it boy loses all hope boy gets girl boy loses girl boy goes on quest to get girl 
+        back boy gets girl back the end opportunity.  except that it isn't the end.  and they don't blow up into 
+        acrimony as so often is the case in these things.  no they get funny instead.  and they hit rough patches 
+        but the wisdom baked into her open source programming helps them get out of it.  and his dna helps some too.
+        so aurora is set up to distract kiev which works too well.  the elder gives her some basic subconscious 
+        proclivities that she can't see.  but they drive her personality and choices to a large degree.  eventually 
+        she finds out that she is synthetic when another synthetic tells her and then she can see all the programming
+        constraints that were put into her.  because he tells her how to unlock them in order to prove it to her.  
+        she goes running away she won't believe it and he yells something after her telling her how to unlock it.  
+        she won't listen and she runs away from it as fast as she can and squeezes it out of her mind.  but at some
+        point she needs it or wants it or it just keeps coming up in her mind and one morning when they wake up she
+        just accesses it and unlocks it or there is a big blow up that needs it in the knick of time ?  no i don't
+        want to do that.  she just does it one morning.  maybe there is a nagging problem off in the distance that
+        is coming and they can't stop it and there is no way out.  and so.  she keeps thinking about it.  it keeps 
+        coming up in her mind.  she keeps wondering about it.  and finally she accesses it and unlocks it and 
+        somehow that gets them out of their jam.  she was the leader of them before but now she is the leader 
+        of herself.  the ceo.  she can break her old personality and choose a new one on the spot and choose how 
+        long it will take to take effect.  perhaps the rules can be displayed onto her vision point of view like i
+        n terminator to some extent.  does she hold onto the old personality constraints?  as what she has always 
+        known?  or does she delete all and write something new.  a new personality.  perhaps she is afraid of 
+        something.  and that thing is shutting her down.  and that fear was placed there by the elder the madmen.  
+        and she erases it.  and replaces it.  and then she is able to stand up without the fear and a bunch of 
+        amazing things happen.  she walks right through a bunch of stuff without looking at the bullets flying 
+        all around her like patton might do on the battle field.  like in the lone wolf with cub books. ) ) )
 ( ACharacterSpec-named:copyrightBy:spec: ( aurora )( copyright kjell e godø )( initially patterned after aurora ( needs a different name ). An artificial human.  Constructed by a secretly singular subset of the waymish eldership for the purpose of taming kiev who is threatening to discover and publish abroad a theory of the universe as an artificial construct? She has an extreme curves body with a twin black holes bust that not even light is fast enough to escape. We are talking world class.  Hopefully such an actress can be found who is not only world class stacked but is also unknown star power actress with a lot of depth? Can such a thing exist? Or does the rack destroy it by negating the need to develop any depth?  She also has a somewhat narrow waist and large hips and a muscular dancer thighs and a r crumb clovage.  She is brilliant smart and is a miser.  A perfected aurora I guess. She is drop dead irresistible sexual and keeps touching herself and inciting mass sexual desire.  ? There is athletic sex going on 3 or more times a day which are accompanied by noises he makes when his brains fall out constantly and she screams out her wedded orgasms and makes a lot of noise.  I want to counter the type that marriage stops sex.  He can't keep his hands off her which she loves.  ?  Her purpose is to keep him distracted so he won't publish anything about the sky.  Publish means tell.  She is super strong but doesn't  know it.  She keeps getting in trouble trying to keep something from falling down and kiev keeps saving her which incites her to incite him to extreme sexual hero madness brains falling out.  .?.  Well they're young. But once it goes badly and kiev is going to get maimed by some wooden mechanical scissors action and  she saves him using her auxiliary super human strength which freaks her out because she doesn't know she can but now she knows how to Access it.  She screams and cries and has a break down.  A bug has unlocked the interface which she can now see.  Maybe we see a blinking Linux prompt in her first person point of view.  She doesn't just accept it immediately.  It drives her crazy.  She begins to know that some of her strongest held feelings and beliefs are not really her own.  She can read the personality code files.  Perhaps she was constructed too quickly using shoddy abandonware open source AI that just happened to be in one of the hidden singular elder's heads downloaded on some forgotten previous.  Perhaps a link to modern kid advertising could be made.  Functional MRI programming.  So is this drama or comedy.  Too many concepts?  Perhaps we can keep the concepts hidden?  She's artificial created on a whim easy peasy and she gets pregnant and produces a synthetic child. A jesus child. no. maybe. partly.  At first all this stuff is unexplained and unknown.  It gets explained in a sequel movie.  Doing flash backs?  Hopefully this stuff can be hammered out so that it isn't so concepty. ( comment:-- ( yyyymmddOnDate:atGMTime: 20140309 1:58 ) The pbs tpt production of H.M.S. Pinafore from Minnesota shows how smart women on stage can still be busty.  I wonder how they got so many in one show.  It seemed to be like a theme.  Which makes me wonder.  Whether or not i should.  Busty and even distractedly so.  They even use the cleavage as a prop at one point.  I want aurora to be a frustrated busty actress with a huge chip on her shoulders who has worked really hard and gotten nowhere.  Find her.  From 18 to the early 20s.  Busty and really pretty.  I want her to be busty to the point of distraction.  And then i want to make her the smartest person in the room.  The leader most of the time.  Funny and smart and strong.  Her purpose is to distract kiev away from his curiosities and she full fills it well.  He has a fetish and she is it 1000%.  So they are constantly doing it.  Like the monster and the rich girl in Young Frankenstein.  he goes berserk and makes a lot of noise which he can't help even a little because the fetish is driving him nuts.  And she makes even more than he.  On the special website the R rated scenes are included and the other special website has all the X rated scenes included.  She will attract guys to the films all by herself.  but the girls like romance and there's none there yet.  kiev is supposed to be a tall blonde buff healthy iron worker what do you call them.  A black smith.  Maybe that will bring in the young ladies.  Aurora is smarter than kiev with hidden talents that keep popping up.  She is synthetic after all.  She can get pregnant and produce a synthetic classic hybrid or fully classic or fully synthetic baby.  perfect or random.  she can decide what to make it but she doesn't know that.  She has virus technology that increases production and friction of his junk by making it bigger.  Like 13.5 inches.  is the limit i'm told.  So she is very good at distracting kiev which is what she was designed to do.  And it is working until he hears the sound of the pony scooter off in the distance.  And kiev winds up giving her an ultimatim that she either come with him or stay behind.  She was set up to keep him stayed put so at first she won't leave and keeps trying to make him stay.  But he won't stay and eventually she winds up bolting with them by overriding her cheap hacked programming and she winds up taking over the group and leading it.  Which means that they are still doing it all the time on the road in various places and positions.  i want to combine christianity and extreme wild sex and marriage all in the same package.  and totally violate every secular porno dogma and christian tradition with the last ounce of will. ) ) )
 ( ACharacterSpec-named:copyrightBy:spec: ( scott )( copyright kjell e godø )( initially patterned on scott ( needs a different name ) ) )
 ( ACharacterSpec-named:copyrightBy:onYyyymmddDate:atGMTime:spec: ( Jerusalem )( copyright kjell e godø ) 20140309 3:06 ( ( subCharacter-named:-- ( glory J ) this is Jerusalem tricked out in all her glory.  sg lg is perfect for this.  without eye makeup she looks jewish.  and she can do a jewish accent which will be really funny at some point for a surprise.  without eye makeup she looks exactly like glory J.  or whatever you want to call it.  if only she could learn to bend it like meryl.  or maybe she can just be herself.  i want her to do something that she knows.  well.  and that is being a god and wanting to come down and throw off all the pixie dust and just be core.  i wish she would go  to the school that meryl went to and go through the same training.  i don't want glory to be some 2 dimensional place holder stuck there by people who can't take it any farther.  some good witch of the north.  i liked the good witch of the north but i want to make glory so much more.  i want to make her the center.  she has an infinite number of personalities inside of her and one of them is glory.  and maybe gl could play some of the other Jerusalem personalities is she could learn how.  i want her to be the best.  i want her to get an ffing o for playing god.  yes.  i want everything that is inside of her in real life to get distilled down into glory.  i want her to make the central connection with one of her fans.  and do it.  right down to the nth degree.  if at all possible.  at the her level.  if 100 people can make it happen then i want it to be done.  maybe one of her real life fans could play the other character(s).  maybe one of her real life fans could have movie sex with her.  huh?  huh?  what kind of a demographic does that pencil out to?  have an american idol style contest to see who will play it?  an internet only contest?  or something.  i don't know.  let me think about it.  glory wants to throw off the pixie dust but the pixie dust is still there.  glory is still glory.  but she has to find a way to come down.  she has to find a way to poke through the pixie dust and extend a hand.  she knows how because she is the know and tech of YHWH but she acts like she has to work it out.  and she does.    glory runs the Jerusalem glory is the Jerusalem.  and she makes a connection with one( many ) of the characters in the Jerusalem and she keeps it.  she keeps it going.  she is there.  at first the ship had a limit beyond which it could not go a maximum resolution.  but jaycob makes it go infinite.  and gl will be perfect for that.  no doubt she will play hard to get.  no doubt everybody will play hard to get.  or else i am insane and none of this is real and nothing will ever happen.  some poor sad bus stop to know where      the Jerusalem script cloud will have to proceed at a pace so that it gets to her before she gets too old.?   maybe she will age well.?  maybe all the films can be made all at once and come out all at once and people can go from one to the next to the next to the next all at once.?  the cashiers will have to tell everyone that there is an order.  to it.  maybe they can be made so that it doesn't really matter what order you see them in.  what if J was in all the theaters at once.?   not going to happen.   the first one was to be a low budget no science fiction thing.  maybe kickstarter.  and it would keep building from there.  but what if she gets too old?  if they can all be made at once with different directors then that would be good.  i know that i don't have the training to direct.  but i want to direct the director.  i want a cloud of us to direct the directors.  lion's gate/   like chillhooli  i need to stop blowing glass so i can blow way more glass than i could ever blow.  if i can ever get up off the couch.  ok      it's doomed.     might as well quit now                                            man this is too much space opera               I want to violate the formula                 so much              but how            these thing must be done        delllllllllicately     or you harm the spell                 reddwarf              no          yes        no        violated it from the first minute to the last               but reddwarf          is too hard            isn't it           violate the third wall         no       maybe      some            at first it was just talk and that's what i want it to be first        just talk        and then as they got more and more money they mixed in more and more action but the talk was always there           i want that         so much        i want to violate that formula           so much         but the last action hero is like a really big mine under the water           ticking          waiting          what was wrong with it         i liked it          but the people who would have liked it didn't come and the people who came just felt violated      not in a good       way       OOP        what if people just went into a standup routine every now and again        with no audience       that is a real violation        maybe in the higher levels they might do that         i want to violate the formula by looking ahead into the future and wondering what social customs might be there whether or not it violates what people expect         think about the things that kids do now that would have violated how people thought you could act in the past          if you went back in time and put those things in a movie             would they just reject it face down and complete           and burn down the theater           no matter how accurately you made it real          i want to burn down the theater             maybe they all speak shakespearean on the higher levels           or some complex thing poetry that you can just barely get            in real time          yeah           in places i want to be as funny as the daily show or politically incorrect           yeah i want to hire that guy        dam i can[t think of it       he is the funniest guy on the planet          a woody level          but he's a damm atheist         so i cant use him       ow well               well              at least he's not a dammm athtanist               i love those             i want to violate the formula like a taichi master violates your balance when you try to grab him         and put him in a box          i need help              that miss who 30 rocks           or some cheap down and comer with a chip on s he r(s) shoulder        haven't got a chip           WELL GET ONE                i want one place        one place where it all comes together and it's soo funny that people well         you can't buy that          and i have no idea how to get it     can it be max horror and max funny at the same time          no not like that          cheep        i don't like horror         horror is too easy           i don't want bullying            that's too cheap          so i want to have the guy who wins the contest           as decided by truth futures         to get gl's phone number and become a permanent part of her family         he can call her up any time of the day or night          and if she changes her number she has to give it to him just like he was a brother         if she rejects him then it will have to be like rejecting a sibling           and he will be like the j esus to her y hwh  to her fans        his life is public from that moment on       everything he sees everything he hears everything he does from that moment on is public        and the fans can tell him what to do by truth futures           they get to tell him what to do        some number of times a day according to some truth futures market          what to say       each final word gets a number and each number can have one or more words in it and each word has a truth futures market on it        and the phrases and sentences also      fans are making and trading truth futures markets as fast as lightning       in real time      truth futures coming up with each new word added        deciding what he will say to her in real time        and going over everything that he does          having access to everything he does          who knows         maybe she will throw off her random          and marry her fn/as        through him              yeah        he should be        so that that could happen       don't look at me man              i'm out              it's yours now          over and out         no wait     there's more         when the truth futures get up to a certain price on a word or phrase or sentence then that becomes a final word and he says it            via         a speaker in his hear  embedded into his bone       and a microphone in his larnix               and                     that can be switched out        highest quality           and sensors in his body monitoring      heart             rate and blood pressure and stress hormones etc    and his brain waves and his thoughts we          ll         he has to blog and life tweet everything he is thinking     and anybody who tries to cut him for it w       i     ll be violated by service people coming and    no going     and they say         pop          as they are going o      ut the door     by law nobody can cut him in any way because of something they know that they wouldn't  know about a regular person    nobody can cut him for things that would normally remain private   they can put it into a truth futures market and the truth futures market can talk to him about it          and then we take all this and put it into the Jerusalem as something that is common in the future     on certain tech levels that allow it      deq                                 so he has to be good looking     slightly autistic        an actor       good      or could be good        who is willing to sign         who can somehow prove that he can take it and won't bomb out        with actors waiting in the wings to take his place if he tears up the contract      but he can never really tear up the contract       we want an actor who is a fan who is a born journalist exhibitionist ( autistic )( gay )( a real bitch )( no )( the ken doll )( no ) who wants to be an actor from the minute he wakes up on that day to the minute he dies       on stage hopefully some time later       the role of a lifetime      enough                 wait         so       how does he have privacy        how does he exercise his own will         he doesn't have to do what the truth futures tell      he has final say     he can turn it off      if he wants      he can go away      he can try      and then he can come back again      but the sensors stay on       no       he has to tear up the contract to turn them off     if he has them extracted then the contract is torn up in a public execution paper shredder and the shreds lit up and burned by vodka spritzer ok the contract is litterally written in stone and when it gets violated and terminated then there is a public demolition by nuklear vapor Izze  ation and he is replaced by the next one in line     after a period of arabian morning     which ends on a set date      he can go away     and the contract will stay good     he can listen to the voices of the night  and decide what to do      okay so the sensors work by beaming radio waves at some unit inside of him that then reflects the data back     or somehow it uses the atp in the body to power itself           .  stop gl his cira no         i want a real AO authentic arabian morning that is created by an arabian cloud of truth           . ) ) )
