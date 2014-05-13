@@ -15,9 +15,6 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 
 
 
-
-
-
 ( scripts--
   ( instructions-named:by:date:time:theInstructions-- ( thePurposeOfThisFile )
     ( kjell e godø )( 20140402 yyyymmdd )( 20:22 Seattle )
