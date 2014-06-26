@@ -2859,8 +2859,21 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           and are just serving to trip me up.  Letting me believe that I would 
           like what I write but absolving me of actually finding out.  So I 
           wind up living in this counter productive fantasy. ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Kiev's speech to the wind )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )( 
+          father
+
+          Please treat me kind
+          Please teach me how to treat you kind
+          I know that we have been at odds
+          I know that you can destroy me at any moment I am defenceless 100%
+          hmm I forget
+          My true Father is YHWH and he demands that every son seek his independence
+          and any son worth his salt
+          And any father who is not mad should expect 
+          independent
+          ok I forget
+          times up ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
