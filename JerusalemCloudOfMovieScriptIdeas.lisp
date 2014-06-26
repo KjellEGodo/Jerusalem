@@ -450,17 +450,805 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
         And as they get closer to the tops of the corn then the wheels of the scooter extend downwards like 
         more of an off road format.  And then they hit pay dirt and corn hits them all upside and the 
         scooter pitches sideways and they all go flying in every different direction landing in the corn.  
-        So then they have to find each other again and some dialog ensues.  Maybe they can't find the scooter anywhere.  The scooter has blushed away or something.  It tries go go back to being a rickety old dusty scooter.  But the jig is up and more dialog ensues.  As they try to talk to it.  But it won't listen.  It just keeps getting ricketier and ricketier.  Or something. It blushes pinker and pinker and then takes on a layer of grey dust.  And its spokes start breaking like old guitar strings. And then they come upon a freeway and kiev and aurora and scott have more future shock because they come from 1820.  kiev and aurora ( name? ) and scott seem to be screaming all the time or something because they are having acute future shock.  So you need really insightful actors to do the future shock right. They need to put into their faces and voices what we all are or will soon feel deep down.  It has to be subtle. and without a lot of sawing of the air.  But it has to be real.  Future shock and culture shock is at the core. Usually people in movies just take everything in stride.  A couple lines of dialog and completely up to speed and thoroughly and completely modern.  I don't thing that is real.  I don't think that real people can look on the face of YHWH like it was a burnt out fluorescent light bulb unaffected.  I don't think that is real. So one of the movie episodes is a road trip.  And you can do all sorts of things with the scooter.  And the synthetic earth is a half sphere inside of another half sphere.  So as they are pealing out to get away from the cops or whatever that are chasing them they actually start to feel gravity going side ways as they get closer and closer to the edge.  And finally gravity is going parallel to the ground and pulling everything and the cop cars forwards until finally the ground pulls away below and everybody falls off the edge of the world.  Into the carbon super structure inside the earth that keep the different synthetic earths in place.  The center of the real earth is a spherical empty space.  And everything is being pulled outward by centrifugal force.  Maybe the scooter lights up a different super modern physique and flys them all to one of the advanced technology areas.  Where they meet finally some of their awdience.  No they don't meet them yet.  They have to be plagued by them first. Vampires on the Jerusalem? Devils on the Jerusalem?  Like viruses being continually removed.  By the autonomous mind probes that are continually removing all evil thoughts and sending them out into the asteroids that trail behind the Jerusalem in a network of cables.  There can be Star Wars Star Trek Gravity type space episodes using only conventional space out amongst these trailing asteroids that are like a wooden hydro plane being dragged behind a boy on his bike in the 1960's.  Or like a foot fungus.  Or like a no death penalty.  Because no evil thoughts are allowed on the Jerusalem.  Probably this is not the first New Jerusalem.  But the latest one to be sent out.  Maybe it is the Jerusalem 17.  Or maybe the previous ones were not called Jerusalem but this one with the autonomous mind probes is called Jerusalem and was built without human hands.  None of them were.  Perhaps there could be comedy instead of drama with the mind probes if the AI entity running the mind probes was more weary mother mary rehab rather than hard ass father aneal.  Or maybe both. Or all three.  In revelations there is something that sounds like a laser beam coming out of the sky? Maybe the scooter turns into a metal woman at some point a really curvey one with a world class bust line that he finds hard to resist and tries to have sex with or become kiev's wife or mistress. Maybe she can produce synthetic humans or new little scooters with synthetic brains based on a  combination of kiev's genes and her genes.  Yes the scooter is named Aurora and she has graphic metal sex with kiev and produces little blue and pink scooters and she is able to sit with kiev and choose between the different possible traits.  But some traits they leave up to random chance because it's just too 21st century to decide on all the traits of your offspring and be really hard ass about it all with a super controlling super conforming super optimizing super competitive 2 by 4 stick up your butt sphynx.  Aurora has sex with kiev and while they are doing it she modifies his equipment to make it more for him.  And for her.  So aurora ( name? ) gets really pissed and jealous at kiev when she finds out. But kiev is like he just masterbated or autosexed or something like that because Aurora is just a machine. And then they both find out that aurora is a shodilly produced slapped together synthetic human whose sole purpose is to keep kiev from upsetting the other waymish participants with his atheist anarchist spoutings because maybe Aurora gets jealous too?  Maybe there is a metal synth cat fight?  Comic relief?  Or maybe Aurora is not very upsettable and she just made an off hand remark as aurora's upsettion tries to get a rise out of them and Aurora says it to diffuse the situation?  Can we do something like the movie Her?  Where the dialog is oscar worthy even though there are high concepts about?  Perhaps the high concepts could be introduced in a previous high concept movie episode and this lower budget episode is just about the relations between Aurora and aurora and kiev and etc and Aurora and kiev's kids.  And then aurora finds out that her own kid making ability was turned off by her maker.  And to get it turned back on again she has to become a different person.  Which she won't do.  At first.  But then when Aurora has her babies then aurora gets so wound up she asks to be transformed into an antique like kiev and so she can have a babie.  Her brain becomes antique and so she thinks differently somehow than she used to.  Her programming is gone.  What's aurora's name?  it keeps coming back aurora. And aurora keeps wanting kiev to stop having sex with Aurora.  But kiev cant see why not since she has given him enough juice to do them both and she's just a scooter after all.  Which makes Aurora sort of mad but not really because Aurora doesn't have many really strong emotions and is very self assured.  And why wouldn't she be.  Because she's perfect.  Where as aurora is not perfect because antiques can't be perfect.  The moment they are made perfect is the moment they cease to be antiques. These ideas should be separated somewhat into separate ideas. So aurora gets a car.  And now the shoe is on the other foot.  A car named gari.  And now it is kiev's turn to be jealous.  But even though it drives him crazy she is not interested in gari sexually and is just being nice.  It looks like a motor scooter and has a  feminine quality.  It has some stickers on the round back like the my little ponies stickers on the back of the the ponies. The stickers keep changing.  The audience can see them change when the characters are not looking at them.  The characters don't realize that the stickers are changing.  Perhaps the stickers can have their own language which predict what will happen or comment on what happened recently. kiev or whatever his final name is notices the changes and tries to point out the changes but when ever he does or whenever the other characters are looking at the stickers they change back to what the stickers were when the characters first looked at the scooter and when they turn back away then they turn back into what kiev was trying to point out.  kiev keeps trying and trying to point out the changes but the others can never see it and they start getting mad at him and commenting on his sanity.  And as they get a little madder mild they begin to self congratulate that they are not crazy and in so doing begin more and more to ignore the scooter.  And finally kiev gives up speaking about it but just keeps watching while the others are talking oblivious about some thing much more practical and reasonable and on point and on message but the decals show that everything their perfect logic is concluding is completely bass ackwards wrong and will probably get them killed if put into action.  If the decals can be believed.  He tries to tell them but his ability to explain is really piss poor and his crippled logic is no match for their perfect rhetoric and glib fast talking.  So the audience realizes that they are fucked and the option that will save them will not be taken.  And it's very ironic. kiev tries to point at the decals at first but that's just crazy talk.  Then he gives up that tack but can't make that work either.  So he starts just looking at the decals trying to decipher them while everybody else is doing something that is Not absolute awful Lunacy that actually moves them forward toward total and complete destruction.  Sometimes he is looking at the decals and the change back to the initial decals and stay there right when it was getting good and he realizes that the others are looking and that's why the decals are blocked.  Then they stop looking that way and the decals get to something really good.  Then just as the final message is coming they force him to turn away from it and stop being a low down slob of a bum an help and stop being so lazy that they get killed then it will be all his fault.  So he starts checking what it is saying and winds up winning some points that are eluding the others.  Maybe.  Just ideas.  Here. Maybe at one point the decals seem to turn sadd and he gets horrified and can't see what their game is? And then they seem to try to explain and make it up and get forgiveness for why he pushed he off the ledge. But he just can't believe anything they say by then.  Good or bad it's all just noise and he stops looking. But the decals keep upping the amperage to get him to look.  Finally he gets a camera and starts taking video of the decals and making reports on everything the decals are saying but by then it's so involved that he can't explain most of it so he dumbs it way down and avoids the stuff he can't explain.  At great physical mental cost.  because it's totally unnatural.      he finally starts to get some traction but decides he is never going to get through to these blind people and he needs to find others who will have an easier time listening.  The decals try to keep him from talking.  They make double meanings half positive and the other half veiled threats which make him wonder w Why.  Half awe inspiring and the other half rotting pestilence and putrefaction.  w Why.  half chaos half creation      Lets see.   something.   Olympics Opening.  he won't stop    he won't listen.   They grouse something fierce but it doesn't affect them good for you 23:07 king 20140207 yyyymmdd.  Don't let them shut.      holy shit      you down.  fountain following.      man o man      what a show      i will watch that thing go out         at the end .  ok enough ) )
+        So then they have to find each other again and some dialog ensues.  Maybe they can't find the 
+        scooter anywhere.  The scooter has blushed away or something.  It tries go go back to being a 
+        rickety old dusty scooter.  But the jig is up and more dialog ensues.  As they try to talk to 
+        it.  But it won't listen.  It just keeps getting ricketier and ricketier.  Or something. It 
+        blushes pinker and pinker and then takes on a layer of grey dust.  And its spokes start breaking 
+        like old guitar strings. And then they come upon a freeway and kiev and aurora and scott have 
+        more future shock because they come from 1820.  kiev and aurora ( name? ) and scott seem to be 
+        screaming all the time or something because they are having acute future shock.  So you need 
+        really insightful actors to do the future shock right. They need to put into their faces and 
+        voices what we all are or will soon feel deep down.  It has to be subtle. and without a lot of 
+        sawing of the air.  But it has to be real.  Future shock and culture shock is at the core. Usually 
+        people in movies just take everything in stride.  A couple lines of dialog and completely up 
+        to speed and thoroughly and completely modern.  I don't thing that is real.  I don't think that 
+        real people can look on the face of YHWH like it was a burnt out fluorescent light bulb unaffected.  
+        I don't think that is real. So one of the movie episodes is a road trip.  And you can do all sorts 
+        of things with the scooter.  And the synthetic earth is a half sphere inside of another half 
+        sphere.  So as they are pealing out to get away from the cops or whatever that are chasing 
+        them they actually start to feel gravity going side ways as they get closer and closer to the 
+        edge.  And finally gravity is going parallel to the ground and pulling everything and the cop 
+        cars forwards until finally the ground pulls away below and everybody falls off the edge of 
+        the world.  Into the carbon super structure inside the earth that keep the different synthetic 
+        earths in place.  The center of the real earth is a spherical empty space.  And everything is 
+        being pulled outward by centrifugal force.  Maybe the scooter lights up a different super 
+        modern physique and flys them all to one of the advanced technology areas.  Where they meet 
+        finally some of their awdience.  No they don't meet them yet.  They have to be plagued by them 
+        first. Vampires on the Jerusalem? Devils on the Jerusalem?  Like viruses being continually 
+        removed.  By the autonomous mind probes that are continually removing all evil thoughts and 
+        sending them out into the asteroids that trail behind the Jerusalem in a network of cables.  
+        There can be Star Wars Star Trek Gravity type space episodes using only conventional space 
+        out amongst these trailing asteroids that are like a wooden hydro plane being dragged behind 
+        a boy on his bike in the 1960's.  Or like a foot fungus.  Or like a no death penalty.  Because 
+        no evil thoughts are allowed on the Jerusalem.  Probably this is not the first New Jerusalem.  
+        But the latest one to be sent out.  Maybe it is the Jerusalem 17.  Or maybe the previous ones 
+        were not called Jerusalem but this one with the autonomous mind probes is called Jerusalem 
+        and was built without human hands.  None of them were.  Perhaps there could be comedy instead 
+        of drama with the mind probes if the AI entity running the mind probes was more weary mother 
+        mary rehab rather than hard ass father aneal.  Or maybe both. Or all three.  In revelations 
+        there is something that sounds like a laser beam coming out of the sky? Maybe the scooter 
+        turns into a metal woman at some point a really curvey one with a world class bust line 
+        that he finds hard to resist and tries to have sex with or become kiev's wife or mistress. 
+        Maybe she can produce synthetic humans or new little scooters with synthetic brains based 
+        on a  combination of kiev's genes and her genes.  Yes the scooter is named Aurora and she has 
+        graphic metal sex with kiev and produces little blue and pink scooters and she is able to 
+        sit with kiev and choose between the different possible traits.  But some traits they leave 
+        up to random chance because it's just too 21st century to decide on all the traits of your 
+        offspring and be really hard ass about it all with a super controlling super conforming 
+        super optimizing super competitive 2 by 4 stick up your butt sphynx.  Aurora has sex with 
+        kiev and while they are doing it she modifies his equipment to make it more for him.  And 
+        for her.  So aurora ( name? ) gets really pissed and jealous at kiev when she finds out. 
+        But kiev is like he just masterbated or autosexed or something like that because Aurora 
+        is just a machine. And then they both find out that aurora is a shodilly produced slapped 
+        together synthetic human whose sole purpose is to keep kiev from upsetting the other waymish 
+        participants with his atheist anarchist spoutings because maybe Aurora gets jealous too?  
+        Maybe there is a metal synth cat fight?  Comic relief?  Or maybe Aurora is not very upsettable 
+        and she just made an off hand remark as aurora's upsettion tries to get a rise out of them 
+        and Aurora says it to diffuse the situation?  Can we do something like the movie Her?  
+        Where the dialog is oscar worthy even though there are high concepts about?  Perhaps the 
+        high concepts could be introduced in a previous high concept movie episode and this lower 
+        budget episode is just about the relations between Aurora and aurora and kiev and etc and 
+        Aurora and kiev's kids.  And then aurora finds out that her own kid making ability was 
+        turned off by her maker.  And to get it turned back on again she has to become a different 
+        person.  Which she won't do.  At first.  But then when Aurora has her babies then aurora 
+        gets so wound up she asks to be transformed into an antique like kiev and so she can 
+        have a babie.  Her brain becomes antique and so she thinks differently somehow than 
+        she used to.  Her programming is gone.  What's aurora's name?  it keeps coming back 
+        aurora. And aurora keeps wanting kiev to stop having sex with Aurora.  But kiev cant 
+        see why not since she has given him enough juice to do them both and she's just a 
+        scooter after all.  Which makes Aurora sort of mad but not really because Aurora 
+        doesn't have many really strong emotions and is very self assured.  And why wouldn't 
+        she be.  Because she's perfect.  Where as aurora is not perfect because antiques 
+        can't be perfect.  The moment they are made perfect is the moment they cease to be 
+        antiques. These ideas should be separated somewhat into separate ideas. So aurora 
+        gets a car.  And now the shoe is on the other foot.  A car named gari.  And now it 
+        is kiev's turn to be jealous.  But even though it drives him crazy she is not 
+        interested in gari sexually and is just being nice.  It looks like a motor scooter 
+        and has a  feminine quality.  It has some stickers on the round back like the my 
+        little ponies stickers on the back of the the ponies. The stickers keep changing.  
+        The audience can see them change when the characters are not looking at them.  The 
+        characters don't realize that the stickers are changing.  Perhaps the stickers can 
+        have their own language which predict what will happen or comment on what happened 
+        recently. kiev or whatever his final name is notices the changes and tries to point 
+        out the changes but when ever he does or whenever the other characters are looking at 
+        the stickers they change back to what the stickers were when the characters first 
+        looked at the scooter and when they turn back away then they turn back into what kiev 
+        was trying to point out.  kiev keeps trying and trying to point out the changes but 
+        the others can never see it and they start getting mad at him and commenting on his 
+        sanity.  And as they get a little madder mild they begin to self congratulate that 
+        they are not crazy and in so doing begin more and more to ignore the scooter.  And 
+        finally kiev gives up speaking about it but just keeps watching while the others 
+        are talking oblivious about some thing much more practical and reasonable and on 
+        point and on message but the decals show that everything their perfect logic is 
+        concluding is completely bass ackwards wrong and will probably get them killed if 
+        put into action.  If the decals can be believed.  He tries to tell them but his 
+        ability to explain is really piss poor and his crippled logic is no match for their 
+        perfect rhetoric and glib fast talking.  So the audience realizes that they are 
+        fucked and the option that will save them will not be taken.  And it's very ironic. 
+        kiev tries to point at the decals at first but that's just crazy talk.  Then he gives 
+        up that tack but can't make that work either.  So he starts just looking at the 
+        decals trying to decipher them while everybody else is doing something that is Not 
+        absolute awful Lunacy that actually moves them forward toward total and complete 
+        destruction.  Sometimes he is looking at the decals and the change back to the 
+        initial decals and stay there right when it was getting good and he realizes that 
+        the others are looking and that's why the decals are blocked.  Then they stop looking 
+        that way and the decals get to something really good.  Then just as the final message 
+        is coming they force him to turn away from it and stop being a low down slob of a bum 
+        an help and stop being so lazy that they get killed then it will be all his fault.  
+        So he starts checking what it is saying and winds up winning some points that are 
+        eluding the others.  Maybe.  Just ideas.  Here. Maybe at one point the decals seem 
+        to turn sadd and he gets horrified and can't see what their game is? And then they 
+        seem to try to explain and make it up and get forgiveness for why he pushed he off 
+        the ledge. But he just can't believe anything they say by then.  Good or bad it's 
+        all just noise and he stops looking. But the decals keep upping the amperage to 
+        get him to look.  Finally he gets a camera and starts taking video of the decals 
+        and making reports on everything the decals are saying but by then it's so involved 
+        that he can't explain most of it so he dumbs it way down and avoids the stuff he can't 
+        explain.  At great physical mental cost.  because it's totally unnatural.      he 
+        finally starts to get some traction but decides he is never going to get through to 
+        these blind people and he needs to find others who will have an easier time listening.  
+        The decals try to keep him from talking.  They make double meanings half positive 
+        and the other half veiled threats which make him wonder w Why.  Half awe inspiring 
+        and the other half rotting pestilence and putrefaction.  w Why.  half chaos half 
+        creation      Lets see.   something.   Olympics Opening.  he won't stop    he won't 
+        listen.   They grouse something fierce but it doesn't affect them good for you 
+        23:07 king 20140207 yyyymmdd.  Don't let them shut.      holy shit      you down.  
+        fountain following.      man o man      what a show      i will watch that thing 
+        go out         at the end .  ok enough ) )
       ( AStoryIdea-named:copyrightBy:idea: ( singular life creation )( copyright kjell e godø )(  ) )
-      ( AStoryIdea-named:copyrightBy:idea: ( artificial universe discovery )(  copyright kjell e godø )( kiev is looking through his telescope at some constellations and one of the stars goes out for 37 minutes and then comes back on again.  Perhaps he begins to see that the stars seem to be on a low altitude shell or crystal sphere. ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( truth futures )( copyright kjell e godø )( 20140215 yyyymmdd ) ( 5:20 seattle )( Ok so the way to prevent the expected market manipulation in extreme illiquid markets is to not let anyone but the market administrator? see the truth future's price.  Studies have shown that this works.  Various statistics about the truth future's price will be published at certain intervals like perhaps every 17 days. So the 20 day and 50 day and 200 day moving averages and the standard deviation and mean and Sharpe ratio and historical and implied volatility etc could be published once every agreed upon period of time like once a week or once every 17 days.  Or once every 13 days.  This would be done to keep people interested and keep on truth voting. Once a month or once a quarter or once every 57 days the actual price of the truth future and all the transactions of all of the truth voters would be published into the public record along with the identity of each truth voter. Bitcoin will be used for the truth futures money.  Truth voters will have to give up their bitcoin anonymity which i think can be done with Bitcoin. Perhaps each truth voter will have to get a coinbase.com account and send in notarized documentation like MtGox requires and a hand written notarized essay about why they should be allowed to truth vote and whatever else they want to say and images of these essays will be posted.  Also drawings can be included in the essay(s).  A voter can publish as many of these notarized essays as they want. Each truth voter starts out with $1000 or less in their truth voting account which is stored on coinbase.com. Each transaction will be stored and tracked and checked to make sure that the $1000 limit is never breached.  If it is breached then a public notice will be published and the transaction requested to be undone.  If there is an appeal or if the transaction is not undone then the total public record or the truth voter's transactions will be published and a truth futures market started on it about whether or not the transaction should be reversed.  If the truth vote is good enough to reverse it and the voter still won't reverse it then the voter's account is cancelled for some period of time or until the voter can make public hand written notarized repentance.  Each truth voter gets 70 times 7 of these chances to repent or however many Jesus said there should be. Each truth voter's truth futures voting account can have more than $1000 in it but the only way to get it to have more than $1000 in it is by gaining truth voting profits for truth voting well and truly done. Truth futures transactions will no longer be called transactions or trades but they will be called votes or specifically truth votes. Also if the value of a bitcoin increases then a truth voter's account could have more than $1000 in it?  This might favor initial truth voters too much and this rule might need to be changed if the initial truth voters get too much power by this route or there could be a formula that ... ? Perhaps any bitcoin value generated truth voting profits would be taxed away each month or restored if the value of bitcoin dropped.  Perhaps these taxes could be invested in junk bonds or SPY or treasuries or bitcoin or something. Initially truth futures will be used to vote on movie scripts here etc. But eventually they might be used to manage entire productions. Eventually they might be used for general corporate or open corporate CEO free management. Every digital entity in the system can have a truth futures market(s) attached to it.  And each truth futures market can have 1 or more for profit or free online textual graphical communications forums attached to it. So there have to be legal licenses and what not created for all of this. So the story of the truth voters will be part of the Jerusalem movie cloud in the 2013 level technology planetoid inside the earth.  It will be a low budget or youtube or netflix video series probably. Some of these videos can be ads for the truth futures open corp management free management system(s).  These management system will allow all people to become open corp voters and will allow them all to truth vote on a second by second basis about how the open corp should be run and allowing the truth futures to make every corporate and even operating decision in an open corp.  OpCop? There can be automated truth futures voting bots coded in BorgLisp.  BorgLisp will be the official system language/OpSys.  There will be no unsecure languages like C orJava etc allowed.  And special BorgLisp secure open hardware like the iPad with all encrypted executables etc should be made also. There can be all sorts of derivatives on the truth futures like vanilla options or exotic options etc. If the truth futures voting model of open corp management free management becomes popular then arbitrary limit truth voting markets that compete directly with all the trading markets that exist today might be created. Perhaps there might even be a country somewhere that takes up the truth futures management free management model as a secure open form of sovereign government.  Maybe in africa or somewhere. And if this worked then perhaps even bigger countries could vote in the standard truth futures sovereign corruption free governance free sovereign governance open truth constitution.  And limited account size truth futures on that truth constitution could begin to truth vote ( $100 account limit ).  To adapt it to local customs traditions religions and tastes. And then all the politicians can go home.  Every truth voter will be a politician and corporate manager and master of the coming robot AI invasion. Human level or above AI entities won't be allowed to vote.  I suppose as they become better and better at emotion mimicry or even as they get true biological emotions perhaps this last human protection will eventually fall get voted out and then the human era will end.  And antique human will be born and come under the jurisdiction of the truth endangered species act. If a truth futures voting market becomes liquid enough to pass certain liquidity standards then the instantaneous price of those truth voting markets can be published at certain intervals which get shorter and shorter as liquidity increases. We try to minimized corruption and manipulation and maximize access to as many truth voters as possible. The entire universe can be run by truth voting. Quite e d ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( dream experiment g )( copyright kjell e godø )( 20140219 yyyymmdd ) 11:44 ( it was a dream.  i knew it was a dream.  i could feel it.  it felt real but i knew that i was directing the actions of the other characters and then that realize slipped away.  it was too bright there was a sparkly sprinkling of white pixie dust in the air.  i see you.  in the woods behind our old house in the leaf part between the two pine sections to the north and the south of the big cedar in the middle 1960 nw houses fenced to the west and condos access drive to the east.  the trail went straight from the north pines south through the 3 foot high cold wet sagged under fern sticks with grey branches high above holding up the overcast.  it looped slightly to the east as it hugged around the base of the tall cedar and then continued south into the pines down that there.  there was a man with a hatchet up in the top of the cedar too far up to see so we would boys fly as fast as we could under the cedar to avoid the chop to get to the road that bounded the forest to the south beyond the thick tall pines and fenced across the road more day sleepers sleep.  it was a small forest but a good one.  i used to go out there at night and hug the big wet black pines in the south and listen to the cars going.  my cheeks pressed hard into the black bark arms stretched wide.  and pray them not torn by some wife'(s) big stiff rear end rubber baby buggy bumpers.  the size of a small football field.  once i climbed a south pine above the entering trail and i could see the kids coming about a mile down below like toys they could not see me i was up too high.  so when they got below me proceeding out of view south i started yelling strange calls in a loud qhoir boy holler.  i was a choir boy in 6th grade and in the seattle opera house all city choir boys angel jam.  they couldn't tell where the calls were coming from and began exclaiming.  and as it kept up apace they lit out at top speed for the road.  young boys fear flying.  so the man with the hatchet was real after all.  so finally i got tired of darting under the cedar every day dodging raining hatchets like the wind.  well previous.  and decided i would go the hell up there and have a chat.  i figured i would probably do all the talking.  so i surveyed the bottom branches and used two like ropes to walk up the tree.  so i kept climbing higher and higher and then i would go out there during storms and ride the wind and the rain in the dark and i kept going up up up the ground dropping away below leaves dropping away below and the whole situation opening wide descending all around in every direction.  until it was just me and a 5 inch pole with cedar green blushing my breathless hales a sturdy branch to sit on a chair and me and the cedar and the setting blues.   purples deep grad.  a flare.  and sett.  wow.  she's beautiful.  her bald clouds tricking.  a rare sight.  that flying fear is such a waste.  let it dwindle into a scout.  we will lean in and laugh ourselves to death if and echo the he leaned against.  resistless.  10.  so there you are.  like.  dam mac keyboard.  30 feet north of the cedar.  framed in black.  key lit.  50 feet north of that.  looking south.  i am 3 or 5 children not yours seeming but charitably pixied dance.  - play round below you about your hips half on the trail half off.  raising play finger tips up to yours.  half but not dazzled in the invisible pixie dust.  the pixie dust that floats all around you generate by being 5.6 inch tall.  with a voice like.  ten thousand voices.  created by a hundred thousand engines.  snow.  well.  yeah.  i want to look into your my eyes and see if i could see any pixie dust reflect.  i fell like this had to be done Now.  so i leaned back into the deep plush of the endless hassle.  and dreamed myself you.  look east.  as your eyes broke from the dancing child before you. coming up and locked.  you knew me.  i kept this dream slowly south. orbiting round you west of you looking east into your snow white halo of dust. locked.  in the exact moment i could not hesitating i said  Hi.  a slight surprise.  Hi.  still proceeding.  i raised my fingers touching relaxed and you took me in yours.  briefly.  hi.  and so still proceeding we let go as i turn from you east rotate south again and back out of existence.  i woke.  oh bLoody hell.  is this what i really think?  trying to wipe the snow off the bed.  and listed the ways that it could all be just a load of white.  white or no.  what do i care.  it's nothing to do with me.  i just want to see.  to scout out.  and then i'm out.  and then forget the whole thing.  as best i can.  staring right at it YellinG and thinking of Someone else.  and resistless. back out of existence. ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( hot monogamous siting )( copyright kjell e godø )( 20140301 yyyymmdd ) 15:48 ( I give up on the idea of making the first Jerusalem movies rated r or even x because of wild married sex between kiev and aurora.  So i want to make a special credit card gated website where all those monogamous sex scenes are most gratuitously included. and included and included and included.  The film goes to 6 hours or more long.  With a button that skips to the next good part.  i want to completely break apart this idea that people have that married sex doesn't exist.  it doesn't.  but i want to break down that notion and replace it with something else.  aurora is special compiled to be irresistible to kiev via a telescopic virus transmitted brain scan that mapped out all the sexual attraction sites and 3D contour receptors in his brain ( maybe guys are better at 3D space perception partly for this very reason. certain shapes and silhouettes are DNA burned into our brains and it doesn't seem to matter if the image is actually connected to something real.  The image and the ability to project it into a dream is all that matters.  whereas women's minds seem to recognize stories instead.  plots.  romances.  And there is more emphasis therein on the stories actually being connected to a physical reality.  not.  girls are suckers for words on a page.  whereas guys are suckers for an eye balled image that keys into the 3D projection machines in our brains ).  So when kiev sees aurora he has to touch her and the barrier to entry is low to her and when he touches her then he goes berserk which causes her to go berserk a little later on.  i can imagine it.  so i want to create it.  whether or not i should.  So there could be one version that just gets down to it as quickly as possible and hits all the pay dirt spots and keeps on hitting it and then there can be another version of Jerusalem that is slower and more lit and artistic about it and you can set sliders on the playback as to how much of each you want ( down to it or artistic.  youtube razor thin blades. or playboy lit and with a lot of mindless social defense lizard brain stem spark resistance and incessant weeping up to the long abandoned hope free snap re hoped climax ). ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( kitchen sink )( copyright kjell e godø )( 20140301 yyyymmdd ) 19:41 ( what if aurora hits a skip in her disk and suddenly launches into a song like Mulan's Reflection with all the muse-ed pyrotechnics and kiev is sitting there watching and she finishes and he says: What in the blue fuck was that?  ( What the Hell was that? ) And she says: i don't know.  And he keeps looking at her waiting for some conclusion to arrive but none does so he shrugs and she shrugs and nothing like that ever happens again. ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( choose your age )( copyright kjell e godø )( 20140301 yyyymmdd ) 9:45 ( there is an old woman who is given the power to choose what age she wants to be. and she chooses 16 and then back up to 22 at the usual pace and to keep all her memories and she slowly gets younger and younger day by day.  Does she get the same hormones as the other girls?  Or does she keep her aged perspective like wisdom? Or does she see the world in a new way as a young girl again?  But not with the abandon of youth this time?  She can set her age to whatever she wants at any time of day or night and she will slowly grow to that age day by day and month by month at the desired rate within the limits of the tech.  She can set the level of the hormones.  Natural or more detached and subdued as befits age and wisdom and seeing.  If she turns on the juice then she forgets wisdom and starts looking for a mate to lay down a line of kids with.  She can see all the different processes going on inside her.  And explore them and adjust them.  What kind of person does she want to be.  She can adjust for that within the limits of the tech.  Perhaps she comes from a place where they don't have such technology and finds her way to a place where they do.  And she can't resist taking on that power into her body so she can be young again and control every aspect of herself to a degree.  And maybe later on she lets it go and lets her body run down to death as they do where she comes from.  maybe she goes back there and gets shunned until she lays aside the offending technology and sticks to the technology of her birth. ( why do they get rid of the 3 best lines from let it go in the covers?  Those lines remind me.  And then it goes back to safe again.  What is this small ice chateau?  I rather want a space filling fractal that spirals up into the sky in every direction and out across the land until it forms a gigantic open cube that fades upwards into icy space.  Of varying density with a spiraling motif like the mandelbrot set up into the air.  With something like the mandelbrot ink blot repeating itself in the fractal.  And when you get close to one of those you shrink into it's universe.  An ink blot that looks like.  A heart?  Fractal repeating hearts?  And then make space keep rewriting itself in an infinity complex.  And then make it start refracting light into all the different rainbows shattering all the mirrors all the way down.  biomega.  the people from the town climbing up into it begin to learn it's ways.  It starts to talk to some of them and they spread it.  And some of them become snow queen snowlets themselves and begin to rewrite.  the snow queen lifts dirt up from below and raises it up to the top of the cube onto one of the spiral arms a way up high in a bubble of air out in space into the sun and it warms up up there.  And a forest grows.  into the moon and stars.  And they cut it the hell down and foster weeds.  grains.  an fruit. ) ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( gold like glass )( copyright kjell e godø )( 20140301 yyyymmdd ) 11:06 ( ( why do they get rid of the 3 best lines from let it go in the covers?  Those lines remind me.  And then it goes back to safe again.  What is this small ice chateau?  I rather want a space filling fractal that spirals up into the sky in every direction and out across the land until it forms a gigantic open cube that fades upwards into icy space.  Of varying density with a spiraling motif like the mandelbrot set up into the air.  With something like the mandelbrot ink blot repeating itself in the fractal.  And when you get close to one of those you shrink into it's universe.  An ink blot that looks like.  A heart?  Fractal repeating hearts?  And then make space keep rewriting itself in an infinity complex.  And then make it start refracting light into all the different rainbows shattering all the mirrors all the way down.  biomega.  the people from the town climbing up into it begin to learn it's ways.  It starts to talk to some of them and they spread it.  And some of them become snow queen snowlets themselves and begin to rewrite.  the snow queen lifts dirt up from below and raises it up to the top of the cube onto one of the spiral arms a way up high in a bubble of air out in space into the sun and it warms up up there.  And a forest grows.  into the moon and stars.  And they cut it the hell down and foster weeds.  grains.  an fruit. ) This is how the Jerusalem can create itself without human hands.  From a single gold and ice 9 seed that is mandelbrot infinite complex.  The culmination of the singularity.  The godlike being holds it in his hand.  And then lets it go like on 12 monkeys and it floats.  And then it drops?  And then it sparks into life as dust in the air spirals into it.  it falls down?  and hits a big ice cube?  which spirals into it and ignights into a rising black hole spiraling and cutting a hole through the earth and up into space.  and then the black hole shrinks back down and gets brighter and then explodes outwards mandelbrot like space filling spirals of transparent gold and silver ice with rainbows refracting in every direction.  the cube is a spiral borg cube of transparent gold and silver ice like glass.  but the borg?  no borg.  The cube grows engines which it lights up down the shaft going down and taxis up into free fall.  out into space.  ok the earth is hollow.  remember.  So the hole doesn't go anywhere.  it just punches through empty space.  maybe it vaporizes the place where kiev comes from.  ?  maybe not.  Maybe a few cells were recovered just prior to ignition.  by nano bots.  so they get on a small ship and go winging into the Jerusalem into all the spiral arms forming the cube.  And they fall into one of the ink blots into the fringe around one of the ink blots.  Cross shaped ink blots ?  heart shape ink blots? the ink blot has to repeat like the mandelbrot ink blot.  the ink blots have to be mathematically smooth yet indistinct if possible.  As they get closer to one of these ink blots kross shaped heart shaped what the blot expands and they shrink and the spirals spiral outward and inward.  An infinite complex.  Maybe they get lost in there.  And start trying to get back out again.  Maybe the Jerusalem creates synthetic humans out of the rocks and the stones which burst into song.  DNA accurate descendants of David.  the godlike being rises up to the bridge.  bridge?  no everywhere is the bridge.  okay so peoples brains get scanned and the Jerusalem won't let anyone still harboring the love of money.  But those people still hanging on can hang on to a christmas tree like structure of spidery web like stiff and bendy spirals like a spiders web out into space trailing behind the Jerusalem that catches rocks and meteors and asteroids like planets where the Star Wars bars and brothels and space ports and drinking dens get constructed by the people still hanging on to it trailing behind the Jerusalem maybe one of the people hanging on to it hollers : What about me?  And then the Jerusalem spins the web out behind it.  And ships can fly from asteroid to asteroid and from space port to space port using nothing but conventional ion drives.  maybe the Jerusalem flies into mars or europa or one of the moons and slices it and the pieces come out the other side and get caught in the web.  And then the Jerusalem takes off for the next star using a huge solar sail and millions of fusion drives and when it gets there it finds a planet and opens up an complex empty cylinder which goes through the Jerusalem and a new black hole collapses and sparks two fountains into the cylinder and collapses down into a gold and silver ice seed.  no.  the seed should be a silver mirror ball like a black hole that reflects the gold behind it momentarily to spark a gold mirror like a black hole so the seed is a black hole a tiny one with some kind of energy field around it keeping it from sucking everything around it.  Or not.  Maybe it just doesn't suck for some reason.  And then the godlike being lets the seed drop onto the planet and a million different new Jerusalems spawn and ignite their engines and make for all the stars in the sky.  Filled with all kinds of synthetic animals and people and beings.  And the lion will eat dust.  and lay down with the lamb.  synthetic creatures maybe some of them look like machines like in biomega.  maybe the Jerusalems make their way to sagitarious and the massive black hole and use the jets to make for another galaxy?  Maybe not.  okay where is the science grounding?  seems we are getting way into fantasy here.  What the hell.  frozen.  maybe a star could be coaxed into spinning in a certain direction.  a new star could be constructed out of gas and pointed in the right direction and then when it collapses into a hypernova the fountain could be used to propel a new Jerusalem out into intergalactic space no a hypernova is too brief.  more fantasy.  well they could avoid the initial fountain and then feed matter into the black hole and use the fountain to sail to the next galaxy.  so the Jerusalem is an infinite complex spiral arm fractal with ink blots like krosses or kearts or both or neither maybe the ink blot changes shape and transparency as you move around it.  like on of those plastic 3D effects.  eah.  and the Jerusalem is created by a silver and gold mirror ball like a black hole.  don't call it a black hole.  let people figure it out by the reflections that move across it.  ok  they make hundreds of millions of new stars and collapse them all into black holes and then sail the fountains to the next galaxy Andromeda.  And then onward out into the galactic filaments before dark energy stops the festival   nano bots   nano bot star makers    enough ( comment:-- ( yyyymmdd:GMTime: 20140302 15:14 ) Ok so F crosses and hearts.  I want the mandelbrot ink blot.  and as you rotate around the ink blot 3D shadows ( like from those plastic 3D effects that they can put onto plastic trading cards that you can hold in your hand that when you rotate them the image changes according to a quantum interference pattern? created by a grating of linear cuts into the plastic like on a vinyl record that project different images according to what angle the light is coming off the grating and going into your eye ) appear briefly a cross and a heart and an anatomically correct heart and a snow flake and a finger print etc.  I want the filaments coming off of the ink blot to be twisted out into 3 dimensions into a systematic tangle that comes outward.  i don't want the actual mandelbrot filaments but something similar.  the ink blot is flat and 2D and rotates so that as you orbit around it it always faces towards you even as the filaments coming out are orbiting in the usual 3D way.  And if you go into the ink blot then what?  you sweep away the stars from the blue thresh hold?  ( bloody heck these frozen let it go gma choralers are nuts everybody wants to be a diva i guess ice ice ice making ice hiding the ice man these people can't sing and that's the point its like singing in tube church way in the black -yay!!! black eyed everybody sing especially the ones who -can't!!! what storm hiding the ice and then abandoning security and letting them know and letting the storm go and making a lot of new ice hmm abandoning hiding the ice and then making a lot of new ice an ice chateau fortress ok it's more like a shack a fonda shak and then she just stops?  She goes into stasis?  cold storage?  we'll get back to you?  just hold on?  what's my motivation!?  ok so i'm just going to sit here and wait.  right.  blllody hell not this again.  wait.  ok i'll wait.  i'll show you waiting.  i'll do the best waiting you ever saw.  my waiting whall bring down the house on the blue threshold.  just you wait.  i don't know but it could be.  my prediction.  haven't seen frozen yet.  no spoilers.  hi kjell she cries    - Oh FK!    Now you've FKing - Gone And Done it   - Evil blll-oody Parkers!   It's World War III NOw    You dirty despoiling piece of S     com mon gon in na put you on the grounn    comemon   - puttem up   puttem up  comon chicken   oops    come on  Crymea river     nnn    nuts -    wow a lot of sawing. an antiChramlet 4:07 min of unceasing air sawing you go girl but i can't watch    give me a minute    a storm of people objecting to the ice making.  a storm of ice making.  breaking the ice.  peeking   now they know.  storm.  the queen of isolation.  i don't know.  i'm looking more for a light seattle drizzle myself.  that's what we do in seattle.  we don't storm much.  although we do blow once in a while.  and that's the royal pain in the but probably imported by foreigners and detroit jersy girls which is why i'm avoiding it   knock wood.  take out the trash you idiot.  ok tomorrow.  100% promise.  not much snow.  maybe once year.  maybe some snow machines will fix that.  like in so chi or New Yo k( ? ).  then it's like bloody Atlanta here.  biblical proportions.  dogs and cats living together. -! mass hysteria.  dazed and confused shirtless sleeve freeway pedestrians.  pocket protectors not protecting.  we drizzle.  when we dress we look out at the 100% chance of drizzle every ding dong day and then keep right on dressing without any regard or affect to whatever the drizzle may be or whatever the dirty weather or worse company may be or if it doesn't drizzle then we just say that if it's not drizzling now then it's a 100% chance of sure that it soon will be   again and then we turn our brains off into a complete shutdown which is not what they say in Bergen in Bergen they say that if it's not raining then it soon will be.  in Beergen hey don't mess around with drizzle.  they go right to the hard stuff.  drenched in Bergen.  you should be so lucky.  in seattle we don't rain we mostly just drizzle.  drizzle it right on in there.  onto the tops of our bald down undeer thin skin pates because we don't wear rain gear and we don't wear hats an we don't use umbrellas.  we just let it drizzle it right on in there and then drip down punching through a thin resistance of hair above to splatter our wet backed up scalps under the leaking hair net of cold hair spray and glue and into our salt eyes and onto our lips which we may part briefly just a bit and let a drop or two in diverted from on their way on down the storm drains and in to total pollute the sound and kill all the salmons and killer whales which we would really rather not but what are you going to do etc virkensoc huh ) fking enough    okay so the godlike being is standing on a long thin arm of structure way out into the middle of a big cylindrical void on the surface of the earth which is open and hollow inside because of the builder robots that ran amok ages ago.  There is at least a circular opening above with stars in it.  The center of the earth is not hollow.  The iron core is still down there.  Although a little smaller perhaps than before the builders got to it.  And the godlike being has on a white robe like a wedding dress with a huge long train like 3 miles long.  except it's a male godlike being or maybe you can't really tell for sure.  And maybe 12 or 13 stars hover about his skull or whatever it is s he has.   s He stands up there for a long time in silence.  It's a big cylinder so big that you can't see the edges from the center.  All you can see are some lights on the walls.  which go down in broken tech lines downwards to a point below.  And there aren't really walls because it's just empty space and you can see some of the fake planet sets in there.  fake planet sets the size of the classic earth before the builders ran amok.  And then there is a flash of light like a ring of fire below.  And some time later a huge concussion.  The flash is like the sun or an h bomb.  And then there is a lot of waiting some more.  And eventually we see the dark ringed dot below getting bigger.  Some more waiting.  Biggeer and bigger until we can see it coming.  Rising up.  A huge iron ball.  a thousand miles across rising slowly up until it reaches the pinnacle of its rise at just about eye level.  No it keeps going up above the godlike being.  no there is a slot cut into it into which the godlike being's gantry structure fits as the ball is going up and then he passes out the bottom of the ball.  And then these giant lazer beams come in from all sides and above and below lighting the iron ball up and compressing it into a marble.  1.7 inches across.  this marble has an odd mirror like structure that seems to warp everything that it passes in front of and seems to have no real surface.  This marble slowly descends down to the godlike being.  And then he cups his hand and it stops.  No it slows down but it's still descending.  And then the godlike being whips into a wicked break set and makes all these funny faces and noises.  And then goes silent and stately again.  All the while holding his hand just under the marble.  which is still slowly descending.  he keeps holding it up until it touches his hand and there is a violent white light explosion vaporizing the godlike being but it's okay because on that level there are no individuals.  so it's more like clipping a toe nail.  and the godlike being's fire fly remains zip at the speed of light into an acression disk which shoots out these blue beams above and below the marble.  which continues descending faster and faster.  it keeps going down until there is another bigger blinding white flash from below and a giant blue beam like a giant 3D printer beam that hits a machine floating above with blinking lights and tech baroque and constructs a huge 3D printer which starts printing up more 3D printers which start spinning out the gold and silver spiral space filling mandelbrot like arms of the Jerusalem.  which begins to slowly descend but then it lights up it's million fusion engines on the bottom of the cube 1500 miles per side and the Jerusalem slowly rises up and out into space and hovers there the fusion engines slowly fade to black.  It waits up there for the people and classic animals and plants to board.  Then it collapses the other half of the iron core inside itself into another marble and shoots the small marble at venus.  mercury?  which goes into orbit around venus and starts syphoning gas and dirt and projecting blue beams one towards the Jerusalem and the other in the opposite direction.  And the Jerusalem unfurls giant solar sails and lights up it's million fusion engines again and slowly makes for polaris?  Although at first it looks like it's not moving at all.  Maybe it takes a week to look like it's moving.  And then it folds it's wings back down again and dives for the sun.  Rama like and slingshots around in a tight loop though the corona and back out and back into the blue beam from venus.  And takes off past each planet which crash through its wings which then get rebuilt immediately.  The space filling mandelbrot arms should have an open structure to them that could house living beings and what not.  Like an octopus arm made of open girders so that there are gaps like in a picket fence so you can see though the arms.  filagrees.  the arms keep flaming out into sparks and rebuilding themselves in to different space filling shapes.  different topological architectural experiments.  BIG   .  So if you are living in a house built out of one of the spiral arms gold and silver like glass with black streaks of shade then your house will periodically build itself out bigger and bigger and grander and grander and then erase itself and start over.  These dwelling places are constant being made and destroyed in each and every second during the day.  So you just walk along the path and when you see a place you like you just walk in.  Anything you want.  Just imagine it and up it comes.  Brain scans don't you know.  No it's not the end of history.  The old history is forgotten.  like a dream.  this is where history starts.  maybe.  but what?  think of something.  ok maybe the hangers on out in the drag web still clinging to the old ways of bad keep trying to climb up the web and get into the Jerusalem and cause trouble.  Why?  Who knows.  They can't seem to help it.  They want to turn the whole place dark.  Like a cinder.  To defile it?  To kill it?  Why?  Who knows.  maybe they just like the absence of color ie Black.  they can't sit in an empty room   because if they did they would be torn apart    torn limb from limb.  I don't know.  you make something up.  yeah God is crying.  So when the people of bad get their hands on the brain scanners in the Jerusalem they immediately start turning out weapons of mass destruction and blowing the place up.  But as fast as they blow it up it keeps rebuilding itself.  Which makes them really mad.   i don't know.  something.   and this keeps going on and on in different epochs.  With different flags and different alliances.  And then there is a place(s) down in the core and out on the surface where fighting is not allowed.  the weapons don't work.  And the combatants just stand there and hate each other.  well.   half of them hates the other half.  leave it at that.  comic break.  the justice field.  people trying to whack each other and getting whacked by the field.  No free will.  Ok enough high concept.  I want a low concept character driven stories that take place on the Jerusalem.  These would be broken out into separate low budget films that could all use the common Jerusalem technology at low cost since it would already be installed.  And then I want high concept with synthetic beings being constructed out of gold and silver and shade and given life and souls and given a job to do likety split.  And then what happens to them.  Out in the drag web old space ships are ion driving around just like in a conventional sci fi bar brawl kling on ball buster ride  going from asteroid to asteroid in the net just like they were little planets.  maybe they fight for democrasy?  make up old style governments and argue and kill each other a lot.   just like old times.  In the Jerusalem the various truth futures forms of headless government reign.  everybody can vote just by wishing it.   There is an infinite amount of space and abilities.  not limitless.  after several generations of time all sorts of weird societies of various different technology styles are built and rise and fall in the Jerusalem.   Maybe people carving an old style of life out of different pockets in the Jerusalem.  There are an infinite number of ink blots and each one is an entire universe.  It's a multiverse.  Maybe they could have a Big Bang in one of them.  The Jerusalem has sex with a mortal and BOOM.  How would the Jerusalem manifest herself.  A tall incredibly busty danielle? curvy venus with skin that changes color moment to moment a huge tierra that keeps changing bigger more garish and then smaller more like high and a 3 mile white downed gauzy train with blue bits that has a life of its own that seems to float at times.  and other times hefts back down to earth.  like a tail.  no.  and then she changes by getting squashed and reformed into a funny little girl.  who keeps changing into something else.  I want to dam this mac keyboard make her be on the level of the OS in her.  But even more.  She has all people in herself and so she keeps changing and each character is more intense or even in silence than the last.  She can flick her fingers and throw off sparks that fall to the floor new works of Motzart or Beethoven or Einstein.  There is a lonely left behind boy.  Who knows.  He just can't make it.  I don't know what.  He is cut off.  Maybe he is not cut off.  Maybe he is just jealous of other people getting married and having kids and what not in the tech restricted little world he lives in just off the y77th ink blot on a "solid" spiral arm( solid spiral arms are always made with a kind of picaso light super structure that you can see through but the beams in them can come together to make a solid place to build ).   But he's got something.  A spark.  That other people don't really see.  And the Jerusalem values this spark.  And she manifests herself to him when no one else is looking.  he tries to tell the others no doubt.  to brag.  or something.  but he can't prove it and she won't let him.dam this dm mac keybord     first she manifests herself to him in all her glory.  And then she morphs down into this funny little girl his own age.  who keeps changing into something else.  and he falls in love with her and she opens herself up to him.  and they have sex.  and BOOM the Big Bang.  and he goes down there and finds various worlds and he finds one suspiciously like earth at various moments in history?  and he tries to tell them that he created them but they kick him down the stairs.  don't want to hear it.  or something.  what else what other deviltry       So if you look at the mandelbrot you see that no where in it except for the ink blots is there anything in it that is solid in any way.  Perhaps this could be included in the spiral arms of the Jerusalem?   Perhaps you have to go into one of the ink blots to get to one of these Big Bang universes?  I want characters to be able to live on the spiral arms.  But I also want the spiral arms to be made of nothing.  So you can't live on them.  You can only go into an ink blot.  oh poo.  okay so some of the spiral arms are solid and some of them are made of nothing but froth and ink blots.  I think the froth is an infinite number of ink blots that looks like froth.  Or maybe the ink blots could be like a black surface that you can stand on.  And then you can live on the ink blot by piling dirt onto it and that way you can still see the spiral arms and fly around in the Jerusalem.  Or the ink blot could be like a door.  Some one way and some the other.  Maybe solid spiral arms could sprout up out of the ink blots and people could live on those.  But the other spiral arms the ones made out of ink blot infinity you can never touch.  and these can never be completely destroyed by the hangers on of bad.  the vestigial hunters.  the blood lusters.    the not cyclist not vegans.   maybe sometimes they let the hangers on of bad in just so they have somebody to fight with.  maybe there could be a Jerusalem movie like baraka where nobody fights and there is no conflict at all.  The end of history.  glenboogle.  A character driven sci fi nightmare.  Only beings who can sit in an empty room can live there.  only people who can sit in an empty theater can live there.   enough.  get specific.  get busy people )<---[ comment ( i predict that she does cry ) ] )<---[ where does it end? ] )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( touch ups )( copyright kjell e godø )( 20140302 yyyymmdd ) 1:07 ( ok so when the marble is falling towards the godlike being when the 5 main characters kiev etc are looking at it from a distance it looks like the marble just keeps picking up speed as it falls and strikes the godlike being and vaporizes s heim like a bullet there is a bright white flash and the two blue beams like lasers shooting out of the marble up and down and the marble just keeps going down into the darkness.  But as the marble comes down the godlike being's mind keeps speeding up faster and faster the closer the marble comes so for s heim it seems to be coming down slower and slower until it seems to stop.  nearly.  to reach out and touch a marble.  also there are vast liquid metal machines floating down in a spherical formation around the marble.  smaller ones in close and massive ones further out in two or more shells.  as the marble falls these machines fall with it.  these machines should be interesting topological architectural artistic embeddings of space.  So you should be able to see through them and see the energy flowing within.  go wild.  get topological.  go architectural.  i don't want to see any flying potatoes.  if i see one more flying potato i will cut my own heart out and swallow it whole and die a thousand deaths and leave you this veil of tiers to defile as you will.  also there are huge topological contraptions orbiting the earth in spherical shells.  maybe some of them look like fermilab.  but liquid metal so they are constantly changing shape.  and you can see the energies flowing within.  so these orbiting machines each one creates a microscopic tiny marble which then eats the machine that creates it and shoots a hypernova beam of blue particles down at the iron ball floating above the godlike being crushing it down into a marble.  some of these beams plow right through the earth so everybody has to be evacuated first except for the godlike being and a few attendants.  the linked battered hollowed earth  is destroyed by the birth of the Jerusalem.  sort of.  it becomes a twisted broken shell.  the Jerusalem creates another marble and sends it to venus.  It goes into orbit around venus.  Now which way is polaris?  Are they going to polaris or somewhere else?  so it is very likely that the marble's blue beam pointed in the direction that the Jerusalem is going to go is going to hit venus during part of the marble's orbit around venus.  and so it is going to cut gashes into venus and throw up a lot of dust and gas which the marble will suck up and turn into a stream of light speed particles pointed at the Jerusalem's solar sails.  after a few thousand years or something there will be nothing left of venus and the marble will keep orbiting the sun in venus's orbit.  the star of the morning will be gone.  The venus marble will also have an entourage of liquid metal machines with visible energy beams flowing around inside of them.  And some will orbit venus pacing the marble and some will stay geosynchronous to venus.  Let's get all 2001 upside the public ass man.   maybe it's not possible anymore.  people's attention spans have been reduced by incessant electronic novelty to the point of non existence.  that's why i don't want any mr potato head ships.  liquid metal but not smooth and shiny.  they can have rough edges and the usual techno baroque but they have to keep changing and pulsing and rewriting themselves.  and you have to see the energies sitting in the different parts of them and see that energy come out and be directed to other areas of the machine to generate different effects.  we should be able to watch the machines preparing themselves to do different things.  also there should be lots of little machines running on and flying around the larger ones.  like the liquid metal computer monitors in the latest superman movie.  the orbiting machines should be able to morph like that.  and be able to split up into different pieces and re-hook up into different configurations ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( and infinite number of universes )( copyright kjell e godø )( 20140302 yyyymmdd ) 1:44 ( kiev is standing on the ink blot foam right next to the surface of an ink blot that they are standing on and janis yells out : HEY!!! - YOU ARE STANDING ON AN INFINITE NUMBER OF SUB-UNIVERSES THERE TOP FLIGHT     And kiev lets out a Yelp as he jumps up and looks down where he was standing.  He was standing part on the ink blot and part off.  and jumps away towards the center of the ink blot and away from the foam that attaches to the edge of the ink blot they are standing on.  and kiev yells out : Well How are we supposed to get off of here?  each ink blot has it's own gravity.  janis says : step lightly.  and xenon says : we fly.  and he imagines a vehicle like a boat.  Once they get away from the ink blot then they float free.  If kiev stepped off the ink blot then he would shrink down and land on one of the microscopic ink blots in the ink blot foam he was stepping onto.  and be lost forever.  until Jerusalem could find him again which might not be possible if he shrank down below her maximum level of microscopic resolution.  or she could send in a lot of robot scouts in after him to increase the scan resolutions.  the Jerusalem is new so everybody who hasn't assimilated the manuals like kiev since he is a classic human and can't assimilate.  so they have to be careful not to run into any of the foam spiral arms because as they get closer and closer they shrink down and shrink down until they land on or in a mandelbrot ink blot embedded in the ink blot fractal foam.  it's all very high concept.  so how do i clear away all the high concept stuff and get character driven.  how do i get all the technology to fade into the background and just focus on two people in the Jerusalem.  And their day to day lives.  Which technology level.  What do people do in the Jerusalem.  What society.  What organization.  what collectives.  i want to focus here on a small set of characters in like a romance or something.  just on their interactions and the technology of the Jerusalem interacts with them in the back ground.  I don't really know how to make such a story.  dialog.  alls i get are dialog fragments.  like poetry.  disconnected.  can anyone behave badly on the Jerusalem.  do i need that?  somebody in danger of getting kicked off the Jerusalem.  out into the drag web.  thought police with brain scanners that can read your mind.  Jerusalem is reading your mind and she is judging you.  if you get too far off the rails for more than 7 times 77 times then you're out.  what if somebody starts getting near that limit.  there could be a little girl out on the drag web who dreams of living on the Jerusalem.  No doubt that would be near automatic but i could put up a bunch of road blocks.  maybe the road blocks are character building.  but she doesn't know that.  maybe she has to break with her parents and her clan to do that.  can i take a character driven story that already exists and graft it onto the Jerusalem?  no action.  all high concepts are in he back ground.  perhaps it is the end of history if you can have anything you want just by wishing for it.  forbidden planet?  could people incorporate rapid fire wishing into their relations with each other?  some of these foreign films don't have any evil characters in them like the japanese film about the woman and her cats.  good and evil?  Jerusalem and the drag web?  what happens to society when everybody can have everything they wish for?  up to some large limit?  you have to have people who are evil to a degree that is below some maximum level.  or else people start wishing up weapons of mass destruction.  that is what hell is a set of relatively evil people with infinite abilities like red angels stuck together in a lake.  maybe.  somebody gets the idea of lighting the lake on fire and up she goes.  maybe.  there could be an amish like story but at a higher technology level.  where some of the kids want to move up to a higher level and the local church tries to stop it.  perhaps getting everything you wish for is something that is really hard to handle for certain minds.  if there are no restrictions no boundaries maybe only the trained minds like the monks and the amish can really handle it.  or will people just get bored with everything and go into a coma.  or will all the people who see this movie feel that way probably unable to live on the Jerusalem themselves?  nothing but walking twitch reflexes and lizard brains?  hmm.  low budget Jerusalem movies about girls with cats.  a low budget Jerusalem movie about a girl and her cats with the Jerusalem rising up on all sides in the sky.  could that go?  a traditional classic now japanese city in the Jerusalem?  why wouldn't she just fly away?  like the amish were afraid of when the automobile came on the scene?  why wouldn't she just fly away and wander aimlessly?  she would have to look at the Jerusalem up in the sky and consciously decide not to go there.  Or a big high power plasma video screen could fake the classic sky including the heat of the sun.  sprinklers for rain.  and then the Jerusalem would just vanish.  what would being on the Jerusalem do to people's minds.  do they need to have certain restrictions or they just blow apart?  could be.  it seems to happen to the rich i have heard.  perhaps people would engage in minute interactions of a subtle nature that wouldn't work in a film.  in a film that was trying to make money.  if you don't care about making money...  could you make a film about somebodies electronic interactions?  you've got mail?  boy meets Jerusalem boy loses Jerusalem boy goes on a quest to get Jerusalem back boy wins Jerusalem boy marries Jerusalem boy finds out Jerusalem is married to 500K other guys.  And 100K other women too.  But that's okay because Jerusalem can be in 600K different places all at once.  Still.  He gets jealous.   if nothing bad ever happens to anybody will all the stories be girl cat stories?  could i make it blatant Christian.  Christian Science fiction?  That would get around the lizard brain and twitch response problems with trying to appeal to the usual semi secular semi atheist semi pagan all consumer tv baked basically semi evil sadd audiences.  Yeah, i could make it blatant Christian.  maybe.  maybe i should look at some christian Science fiction,  could it make enough money to go.  maybe the animators could make everything in a couple weeks because it's all simple stuff anyway and it wouldn't cost that much.  want reality.  but Troll did pretty good with not much money.    what airy day dreams.  enough. ) )
+      ( AStoryIdea-named:copyrightBy:idea: ( artificial universe discovery )(  copyright kjell e godø )
+          ( kiev is looking through his telescope at some constellations and one of the stars goes 
+          out for 37 minutes and then comes back on again.  Perhaps he begins to see that the stars 
+          seem to be on a low altitude shell or crystal sphere. ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( truth futures )( copyright 
+          kjell e godø )( 20140215 yyyymmdd ) ( 5:20 seattle )( Ok so the way to prevent the 
+          expected market manipulation in extreme illiquid markets is to not let anyone but 
+          the market administrator? see the truth future's price.  Studies have shown that 
+          this works.  Various statistics about the truth future's price will be published 
+          at certain intervals like perhaps every 17 days. So the 20 day and 50 day and 200 
+          day moving averages and the standard deviation and mean and Sharpe ratio and historical 
+          and implied volatility etc could be published once every agreed upon period of time 
+          like once a week or once every 17 days.  Or once every 13 days.  This would be done 
+          to keep people interested and keep on truth voting. Once a month or once a quarter 
+          or once every 57 days the actual price of the truth future and all the transactions 
+          of all of the truth voters would be published into the public record along with the 
+          identity of each truth voter. Bitcoin will be used for the truth futures money.  
+          Truth voters will have to give up their bitcoin anonymity which i think can be done 
+          with Bitcoin. Perhaps each truth voter will have to get a coinbase.com account and 
+          send in notarized documentation like MtGox requires and a hand written notarized 
+          essay about why they should be allowed to truth vote and whatever else they want 
+          to say and images of these essays will be posted.  Also drawings can be included 
+          in the essay(s).  A voter can publish as many of these notarized essays as they 
+          want. Each truth voter starts out with $1000 or less in their truth voting account 
+          which is stored on coinbase.com. Each transaction will be stored and tracked and 
+          checked to make sure that the $1000 limit is never breached.  If it is breached 
+          then a public notice will be published and the transaction requested to be undone.  
+          If there is an appeal or if the transaction is not undone then the total public 
+          record or the truth voter's transactions will be published and a truth futures 
+          market started on it about whether or not the transaction should be reversed.  
+          If the truth vote is good enough to reverse it and the voter still won't reverse 
+          it then the voter's account is cancelled for some period of time or until the voter 
+          can make public hand written notarized repentance.  Each truth voter gets 70 times 
+          7 of these chances to repent or however many Jesus said there should be. Each 
+          truth voter's truth futures voting account can have more than $1000 in it but 
+          the only way to get it to have more than $1000 in it is by gaining truth voting 
+          profits for truth voting well and truly done. Truth futures transactions will 
+          no longer be called transactions or trades but they will be called votes or 
+          specifically truth votes. Also if the value of a bitcoin increases then a truth 
+          voter's account could have more than $1000 in it?  This might favor initial 
+          truth voters too much and this rule might need to be changed if the initial 
+          truth voters get too much power by this route or there could be a formula 
+          that ... ? Perhaps any bitcoin value generated truth voting profits would be 
+          taxed away each month or restored if the value of bitcoin dropped.  Perhaps 
+          these taxes could be invested in junk bonds or SPY or treasuries or bitcoin  
+          or something. Initially truth futures will be used to vote on movie scripts 
+          here etc. But eventually they might be used to manage entire productions. 
+          Eventually they might be used for general corporate or open corporate CEO 
+          free management. Every digital entity in the system can have a truth futures 
+          market(s) attached to it.  And each truth futures market can have 1 or more 
+          for profit or free online textual graphical communications forums attached to 
+          it. So there have to be legal licenses and what not created for all of this. 
+          So the story of the truth voters will be part of the Jerusalem movie cloud in 
+          the 2013 level technology planetoid inside the earth.  It will be a low budget 
+          or youtube or netflix video series probably. Some of these videos can be ads 
+          for the truth futures open corp management free management system(s).  These 
+          management system will allow all people to become open corp voters and will 
+          allow them all to truth vote on a second by second basis about how the open 
+          corp should be run and allowing the truth futures to make every corporate and 
+          even operating decision in an open corp.  OpCop? There can be automated truth 
+          futures voting bots coded in BorgLisp.  BorgLisp will be the official system 
+          language/OpSys.  There will be no unsecure languages like C orJava etc allowed.  
+          And special BorgLisp secure open hardware like the iPad with all encrypted executables 
+          etc should be made also. There can be all sorts of derivatives on the truth 
+          futures like vanilla options or exotic options etc. If the truth futures voting 
+          model of open corp management free management becomes popular then arbitrary 
+          limit truth voting markets that compete directly with all the trading markets 
+          that exist today might be created. Perhaps there might even be a country 
+          somewhere that takes up the truth futures management free management model 
+          as a secure open form of sovereign government.  Maybe in africa or somewhere. 
+          And if this worked then perhaps even bigger countries could vote in the 
+          standard truth futures sovereign corruption free governance free sovereign 
+          governance open truth constitution.  And limited account size truth futures 
+          on that truth constitution could begin to truth vote ( $100 account limit ).  
+          To adapt it to local customs traditions religions and tastes. And then all the 
+          politicians can go home.  Every truth voter will be a politician and corporate 
+          manager and master of the coming robot AI invasion. Human level or above AI 
+          entities won't be allowed to vote.  I suppose as they become better and better 
+          at emotion mimicry or even as they get true biological emotions perhaps this 
+          last human protection will eventually fall get voted out and then the human 
+          era will end.  And antique human will be born and come under the jurisdiction 
+          of the truth endangered species act. If a truth futures voting market becomes 
+          liquid enough to pass certain liquidity standards then the instantaneous 
+          price of those truth voting markets can be published at certain intervals 
+          which get shorter and shorter as liquidity increases. We try to minimized 
+          corruption and manipulation and maximize access to as many truth voters as 
+          possible. The entire universe can be run by truth voting. Quite e d ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( dream experiment g )
+          ( copyright kjell e godø )( 20140219 yyyymmdd ) 11:44 ( it was a dream.  i 
+          knew it was a dream.  i could feel it.  it felt real but i knew that i was 
+          directing the actions of the other characters and then that realize slipped 
+          away.  it was too bright there was a sparkly sprinkling of white pixie dust 
+          in the air.  i see you.  in the woods behind our old house in the leaf part 
+          between the two pine sections to the north and the south of the big cedar 
+          in the middle 1960 nw houses fenced to the west and condos access drive to 
+          the east.  the trail went straight from the north pines south through the 3 
+          foot high cold wet sagged under fern sticks with grey branches high above 
+          holding up the overcast.  it looped slightly to the east as it hugged around 
+          the base of the tall cedar and then continued south into the pines down that 
+          there.  there was a man with a hatchet up in the top of the cedar too far up 
+          to see so we would boys fly as fast as we could under the cedar to avoid the 
+          chop to get to the road that bounded the forest to the south beyond the thick 
+          tall pines and fenced across the road more day sleepers sleep.  it was a small 
+          forest but a good one.  i used to go out there at night and hug the big wet 
+          black pines in the south and listen to the cars going.  my cheeks pressed 
+          hard into the black bark arms stretched wide.  and pray them not torn by some 
+          wife'(s) big stiff rear end rubber baby buggy bumpers.  the size of a small 
+          football field.  once i climbed a south pine above the entering trail and i 
+          could see the kids coming about a mile down below like toys they could not 
+          see me i was up too high.  so when they got below me proceeding out of view 
+          south i started yelling strange calls in a loud qhoir boy holler.  i was a 
+          choir boy in 6th grade and in the seattle opera house all city choir boys 
+          angel jam.  they couldn't tell where the calls were coming from and began 
+          exclaiming.  and as it kept up apace they lit out at top speed for the road.  
+          young boys fear flying.  so the man with the hatchet was real after all.  so 
+          finally i got tired of darting under the cedar every day dodging raining 
+          hatchets like the wind.  well previous.  and decided i would go the hell 
+          up there and have a chat.  i figured i would probably do all the talking.  
+          so i surveyed the bottom branches and used two like ropes to walk up the tree.  
+          so i kept climbing higher and higher and then i would go out there during storms 
+          and ride the wind and the rain in the dark and i kept going up up up the ground 
+          dropping away below leaves dropping away below and the whole situation opening 
+          wide descending all around in every direction.  until it was just me and a 5 
+          inch pole with cedar green blushing my breathless hales a sturdy branch to 
+          sit on a chair and me and the cedar and the setting blues.   purples deep grad.  
+          a flare.  and sett.  wow.  she's beautiful.  her bald clouds tricking.  a rare 
+          sight.  that flying fear is such a waste.  let it dwindle into a scout.  we will 
+          lean in and laugh ourselves to death if and echo the he leaned against.  
+          resistless.  10.  so there you are.  like.  dam mac keyboard.  30 feet north of 
+          the cedar.  framed in black.  key lit.  50 feet north of that.  looking south.  
+          i am 3 or 5 children not yours seeming but charitably pixied dance.  - play round 
+          below you about your hips half on the trail half off.  raising play finger tips 
+          up to yours.  half but not dazzled in the invisible pixie dust.  the pixie 
+          dust that floats all around you generate by being 5.6 inch tall.  with a voice 
+          like.  ten thousand voices.  created by a hundred thousand engines.  snow.  
+          well.  yeah.  i want to look into your my eyes and see if i could see any 
+          pixie dust reflect.  i fell like this had to be done Now.  so i leaned back 
+          into the deep plush of the endless hassle.  and dreamed myself you.  look east.  
+          as your eyes broke from the dancing child before you. coming up and locked.  
+          you knew me.  i kept this dream slowly south. orbiting round you west of you 
+          looking east into your snow white halo of dust. locked.  in the exact moment i 
+          could not hesitating i said  Hi.  a slight surprise.  Hi.  still proceeding.  
+          i raised my fingers touching relaxed and you took me in yours.  briefly.  hi.  
+          and so still proceeding we let go as i turn from you east rotate south again 
+          and back out of existence.  i woke.  oh bLoody hell.  is this what i really think?  
+          trying to wipe the snow off the bed.  and listed the ways that it could all 
+          be just a load of white.  white or no.  what do i care.  it's nothing to do 
+          with me.  i just want to see.  to scout out.  and then i'm out.  and then forget 
+          the whole thing.  as best i can.  staring right at it YellinG and thinking of 
+          Someone else.  and resistless. back out of existence. ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( hot monogamous siting )
+          ( copyright kjell e godø )( 20140301 yyyymmdd ) 15:48 ( I give up on the idea of 
+          making the first Jerusalem movies rated r or even x because of wild married sex 
+          between kiev and aurora.  So i want to make a special credit card gated website 
+          where all those monogamous sex scenes are most gratuitously included. and included 
+          and included and included.  The film goes to 6 hours or more long.  With a button 
+          that skips to the next good part.  i want to completely break apart this idea that 
+          people have that married sex doesn't exist.  it doesn't.  but i want to break down 
+          that notion and replace it with something else.  aurora is special compiled to be 
+          irresistible to kiev via a telescopic virus transmitted brain scan that mapped out 
+          all the sexual attraction sites and 3D contour receptors in his brain ( maybe guys 
+          are better at 3D space perception partly for this very reason. certain shapes and 
+          silhouettes are DNA burned into our brains and it doesn't seem to matter if the 
+          image is actually connected to something real.  The image and the ability to 
+          project it into a dream is all that matters.  whereas women's minds seem to 
+          recognize stories instead.  plots.  romances.  And there is more emphasis therein 
+          on the stories actually being connected to a physical reality.  not.  girls are 
+          suckers for words on a page.  whereas guys are suckers for an eye balled image 
+          that keys into the 3D projection machines in our brains ).  So when kiev sees 
+          aurora he has to touch her and the barrier to entry is low to her and when he 
+          touches her then he goes berserk which causes her to go berserk a little later 
+          on.  i can imagine it.  so i want to create it.  whether or not i should.  So 
+          there could be one version that just gets down to it as quickly as possible and 
+          hits all the pay dirt spots and keeps on hitting it and then there can be another 
+          version of Jerusalem that is slower and more lit and artistic about it and you 
+          can set sliders on the playback as to how much of each you want ( down to it or 
+          artistic.  youtube razor thin blades. or playboy lit and with a lot of mindless 
+          social defense lizard brain stem spark resistance and incessant weeping up to the 
+          long abandoned hope free snap re hoped climax ). ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( kitchen sink )
+          ( copyright kjell e godø )( 20140301 yyyymmdd ) 19:41 ( what if aurora hits a 
+          skip in her disk and suddenly launches into a song like Mulan's Reflection with 
+          all the muse-ed pyrotechnics and kiev is sitting there watching and she finishes 
+          and he says: What in the blue fuck was that?  ( What the Hell was that? ) And she 
+          says: i don't know.  And he keeps looking at her waiting for some conclusion to 
+          arrive but none does so he shrugs and she shrugs and nothing like that ever happens again. ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( choose your age )
+          ( copyright kjell e godø )( 20140301 yyyymmdd ) 9:45 ( there is an old woman who 
+          is given the power to choose what age she wants to be. and she chooses 16 and 
+          then back up to 22 at the usual pace and to keep all her memories and she slowly 
+          gets younger and younger day by day.  Does she get the same hormones as the other 
+          girls?  Or does she keep her aged perspective like wisdom? Or does she see the 
+          world in a new way as a young girl again?  But not with the abandon of youth 
+          this time?  She can set her age to whatever she wants at any time of day or night 
+          and she will slowly grow to that age day by day and month by month at the desired 
+          rate within the limits of the tech.  She can set the level of the hormones.  
+          Natural or more detached and subdued as befits age and wisdom and seeing.  If 
+          she turns on the juice then she forgets wisdom and starts looking for a mate to 
+          lay down a line of kids with.  She can see all the different processes going on 
+          inside her.  And explore them and adjust them.  What kind of person does she want 
+          to be.  She can adjust for that within the limits of the tech.  Perhaps she 
+          comes from a place where they don't have such technology and finds her way to a 
+          place where they do.  And she can't resist taking on that power into her body so 
+          she can be young again and control every aspect of herself to a degree.  And maybe 
+          later on she lets it go and lets her body run down to death as they do where she 
+          comes from.  maybe she goes back there and gets shunned until she lays aside the 
+          offending technology and sticks to the technology of her birth. ( why do they get 
+          rid of the 3 best lines from let it go in the covers?  Those lines remind me.  
+          And then it goes back to safe again.  What is this small ice chateau?  I rather 
+          want a space filling fractal that spirals up into the sky in every direction and 
+          out across the land until it forms a gigantic open cube that fades upwards into 
+          icy space.  Of varying density with a spiraling motif like the mandelbrot set up 
+          into the air.  With something like the mandelbrot ink blot repeating itself in 
+          the fractal.  And when you get close to one of those you shrink into it's universe.  
+          An ink blot that looks like.  A heart?  Fractal repeating hearts?  And then make 
+          space keep rewriting itself in an infinity complex.  And then make it start 
+          refracting light into all the different rainbows shattering all the mirrors 
+          all the way down.  biomega.  the people from the town climbing up into it begin 
+          to learn it's ways.  It starts to talk to some of them and they spread it.  And 
+          some of them become snow queen snowlets themselves and begin to rewrite.  the 
+          snow queen lifts dirt up from below and raises it up to the top of the cube onto 
+          one of the spiral arms a way up high in a bubble of air out in space into the sun 
+          and it warms up up there.  And a forest grows.  into the moon and stars.  And they 
+          cut it the hell down and foster weeds.  grains.  an fruit. ) ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( gold like glass )
+          ( copyright kjell e godø )( 20140301 yyyymmdd ) 11:06 ( ( why do they get rid of the 
+          3 best lines from let it go in the covers?  Those lines remind me.  And then it goes 
+          back to safe again.  What is this small ice chateau?  I rather want a space filling
+          fractal that spirals up into the sky in every direction and out across the land until 
+          it forms a gigantic open cube that fades upwards into icy space.  Of varying density 
+          with a spiraling motif like the mandelbrot set up into the air.  With something like 
+          the mandelbrot ink blot repeating itself in the fractal.  And when you get close to 
+          one of those you shrink into it's universe.  An ink blot that looks like.  A heart?  
+          Fractal repeating hearts?  And then make space keep rewriting itself in an infinity 
+          complex.  And then make it start refracting light into all the different rainbows 
+          shattering all the mirrors all the way down.  biomega.  the people from the town 
+          climbing up into it begin to learn it's ways.  It starts to talk to some of them and 
+          they spread it.  And some of them become snow queen snowlets themselves and begin to 
+          rewrite.  the snow queen lifts dirt up from below and raises it up to the top of the 
+          cube onto one of the spiral arms a way up high in a bubble of air out in space into 
+          the sun and it warms up up there.  And a forest grows.  into the moon and stars.  
+          And they cut it the hell down and foster weeds.  grains.  an fruit. ) This is how 
+          the Jerusalem can create itself without human hands.  From a single gold and ice 9 
+          seed that is mandelbrot infinite complex.  The culmination of the singularity.  The 
+          godlike being holds it in his hand.  And then lets it go like on 12 monkeys and it 
+          floats.  And then it drops?  And then it sparks into life as dust in the air spirals 
+          into it.  it falls down?  and hits a big ice cube?  which spirals into it and ignights 
+          into a rising black hole spiraling and cutting a hole through the earth and up into 
+          space.  and then the black hole shrinks back down and gets brighter and then explodes 
+          outwards mandelbrot like space filling spirals of transparent gold and silver ice 
+          with rainbows refracting in every direction.  the cube is a spiral borg cube of 
+          transparent gold and silver ice like glass.  but the borg?  no borg.  The cube 
+          grows engines which it lights up down the shaft going down and taxis up into free 
+          fall.  out into space.  ok the earth is hollow.  remember.  So the hole doesn't go 
+          anywhere.  it just punches through empty space.  maybe it vaporizes the place where 
+          kiev comes from.  ?  maybe not.  Maybe a few cells were recovered just prior to ignition.  
+          by nano bots.  so they get on a small ship and go winging into the Jerusalem into 
+          all the spiral arms forming the cube.  And they fall into one of the ink blots into 
+          the fringe around one of the ink blots.  Cross shaped ink blots ?  heart shape ink 
+          blots? the ink blot has to repeat like the mandelbrot ink blot.  the ink blots have 
+          to be mathematically smooth yet indistinct if possible.  As they get closer to one 
+          of these ink blots kross shaped heart shaped what the blot expands and they shrink 
+          and the spirals spiral outward and inward.  An infinite complex.  Maybe they get lost 
+          in there.  And start trying to get back out again.  Maybe the Jerusalem creates 
+          synthetic humans out of the rocks and the stones which burst into song.  DNA accurate 
+          descendants of David.  the godlike being rises up to the bridge.  bridge?  no everywhere 
+          is the bridge.  okay so peoples brains get scanned and the Jerusalem won't let anyone 
+          still harboring the love of money.  But those people still hanging on can hang on to a 
+          christmas tree like structure of spidery web like stiff and bendy spirals like a spiders 
+          web out into space trailing behind the Jerusalem that catches rocks and meteors and 
+          asteroids like planets where the Star Wars bars and brothels and space ports and drinking 
+          dens get constructed by the people still hanging on to it trailing behind the Jerusalem 
+          maybe one of the people hanging on to it hollers : What about me?  And then the Jerusalem 
+          spins the web out behind it.  And ships can fly from asteroid to asteroid and from space 
+          port to space port using nothing but conventional ion drives.  maybe the Jerusalem 
+          flies into mars or europa or one of the moons and slices it and the pieces come out the 
+          other side and get caught in the web.  And then the Jerusalem takes off for the next 
+          star using a huge solar sail and millions of fusion drives and when it gets there 
+          it finds a planet and opens up an complex empty cylinder which goes through the 
+          Jerusalem and a new black hole collapses and sparks two fountains into the cylinder 
+          and collapses down into a gold and silver ice seed.  no.  the seed should be a 
+          silver mirror ball like a black hole that reflects the gold behind it momentarily 
+          to spark a gold mirror like a black hole so the seed is a black hole a tiny one 
+          with some kind of energy field around it keeping it from sucking everything around 
+          it.  Or not.  Maybe it just doesn't suck for some reason.  And then the godlike being 
+          lets the seed drop onto the planet and a million different new Jerusalems spawn and 
+          ignite their engines and make for all the stars in the sky.  Filled with all kinds 
+          of synthetic animals and people and beings.  And the lion will eat dust.  and lay 
+          down with the lamb.  synthetic creatures maybe some of them look like machines like 
+          in biomega.  maybe the Jerusalems make their way to sagitarious and the massive black 
+          hole and use the jets to make for another galaxy?  Maybe not.  okay where is the 
+          science grounding?  seems we are getting way into fantasy here.  What the hell.  
+          frozen.  maybe a star could be coaxed into spinning in a certain direction.  a new 
+          star could be constructed out of gas and pointed in the right direction and then when 
+          it collapses into a hypernova the fountain could be used to propel a new Jerusalem 
+          out into intergalactic space no a hypernova is too brief.  more fantasy.  well they 
+          could avoid the initial fountain and then feed matter into the black hole and use 
+          the fountain to sail to the next galaxy.  so the Jerusalem is an infinite complex 
+          spiral arm fractal with ink blots like krosses or kearts or both or neither maybe 
+          the ink blot changes shape and transparency as you move around it.  like on of 
+          those plastic 3D effects.  eah.  and the Jerusalem is created by a silver and 
+          gold mirror ball like a black hole.  don't call it a black hole.  let people 
+          figure it out by the reflections that move across it.  ok  they make hundreds 
+          of millions of new stars and collapse them all into black holes and then sail 
+          the fountains to the next galaxy Andromeda.  And then onward out into the galactic 
+          filaments before dark energy stops the festival   nano bots   nano bot star makers    
+          enough ( comment:-- ( yyyymmdd:GMTime: 20140302 15:14 ) Ok so F crosses and hearts.  
+          I want the mandelbrot ink blot.  and as you rotate around the ink blot 3D shadows 
+          ( like from those plastic 3D effects that they can put onto plastic trading cards 
+          that you can hold in your hand that when you rotate them the image changes 
+          according to a quantum interference pattern? created by a grating of linear cuts 
+          into the plastic like on a vinyl record that project different images according 
+          to what angle the light is coming off the grating and going into your eye ) appear 
+          briefly a cross and a heart and an anatomically correct heart and a snow flake and 
+          a finger print etc.  I want the filaments coming off of the ink blot to be 
+          twisted out into 3 dimensions into a systematic tangle that comes outward.  i 
+          don't want the actual mandelbrot filaments but something similar.  the ink blot 
+          is flat and 2D and rotates so that as you orbit around it it always faces towards 
+          you even as the filaments coming out are orbiting in the usual 3D way.  And if 
+          you go into the ink blot then what?  you sweep away the stars from the blue 
+          thresh hold?  ( bloody heck these frozen let it go gma choralers are nuts 
+          everybody wants to be a diva i guess ice ice ice making ice hiding the ice man 
+          these people can't sing and that's the point its like singing in tube church 
+          way in the black -yay!!! black eyed everybody sing especially the ones 
+          who -can't!!! what storm hiding the ice and then abandoning security and 
+          letting them know and letting the storm go and making a lot of new ice hmm 
+          abandoning hiding the ice and then making a lot of new ice an ice chateau 
+          fortress ok it's more like a shack a fonda shak and then she just stops?  
+          She goes into stasis?  cold storage?  we'll get back to you?  just hold on?  
+          what's my motivation!?  ok so i'm just going to sit here and wait.  right.  
+          blllody hell not this again.  wait.  ok i'll wait.  i'll show you waiting.  
+          i'll do the best waiting you ever saw.  my waiting whall bring down the 
+          house on the blue threshold.  just you wait.  i don't know but it could be.  
+          my prediction.  haven't seen frozen yet.  no spoilers.  hi kjell she cries
+          - Oh FK!    Now you've FKing - Gone And Done it   - Evil blll-oody Parkers!   
+          It's World War III NOw    You dirty despoiling piece of S     com mon gon 
+          in na put you on the grounn    comemon   - puttem up   puttem up  comon 
+          chicken   oops    come on  Crymea river     nnn    nuts -    wow a lot of 
+          sawing. an antiChramlet 4:07 min of unceasing air sawing you go girl but i 
+          can't watch    give me a minute    a storm of people objecting to the ice 
+          making.  a storm of ice making.  breaking the ice.  peeking   now they know.  
+          storm.  the queen of isolation.  i don't know.  i'm looking more for a light 
+          seattle drizzle myself.  that's what we do in seattle.  we don't storm much.  
+          although we do blow once in a while.  and that's the royal pain in the but 
+          probably imported by foreigners and detroit jersy girls which is why i'm 
+          avoiding it   knock wood.  take out the trash you idiot.  ok tomorrow.  
+          100% promise.  not much snow.  maybe once year.  maybe some snow machines 
+          will fix that.  like in so chi or New Yo k( ? ).  then it's like bloody 
+          Atlanta here.  biblical proportions.  dogs and cats living together. -! mass 
+          hysteria.  dazed and confused shirtless sleeve freeway pedestrians.  pocket 
+          protectors not protecting.  we drizzle.  when we dress we look out at the 
+          100% chance of drizzle every ding dong day and then keep right on dressing 
+          without any regard or affect to whatever the drizzle may be or whatever the 
+          dirty weather or worse company may be or if it doesn't drizzle then we just say 
+          that if it's not drizzling now then it's a 100% chance of sure that it soon 
+          will be   again and then we turn our brains off into a complete shutdown 
+          which is not what they say in Bergen in Bergen they say that if it's not raining 
+          then it soon will be.  in Beergen hey don't mess around with drizzle.  they 
+          go right to the hard stuff.  drenched in Bergen.  you should be so lucky.  
+          in seattle we don't rain we mostly just drizzle.  drizzle it right on in there.  
+          onto the tops of our bald down undeer thin skin pates because we don't wear 
+          rain gear and we don't wear hats an we don't use umbrellas.  we just let it 
+          drizzle it right on in there and then drip down punching through a thin 
+          resistance of hair above to splatter our wet backed up scalps under the 
+          leaking hair net of cold hair spray and glue and into our salt eyes and 
+          onto our lips which we may part briefly just a bit and let a drop or two 
+          in diverted from on their way on down the storm drains and in to total 
+          pollute the sound and kill all the salmons and killer whales which we would 
+          really rather not but what are you going to do etc virkensoc huh ) fking 
+          enough    okay so the godlike being is standing on a long thin arm of 
+          structure way out into the middle of a big cylindrical void on the surface 
+          of the earth which is open and hollow inside because of the builder robots 
+          that ran amok ages ago.  There is at least a circular opening above with 
+          stars in it.  The center of the earth is not hollow.  The iron core is 
+          still down there.  Although a little smaller perhaps than before the 
+          builders got to it.  And the godlike being has on a white robe like a 
+          wedding dress with a huge long train like 3 miles long.  except it's a 
+          male godlike being or maybe you can't really tell for sure.  And maybe 12 
+          or 13 stars hover about his skull or whatever it is s he has.   s He stands 
+          up there for a long time in silence.  It's a big cylinder so big that you 
+          can't see the edges from the center.  All you can see are some lights on 
+          the walls.  which go down in broken tech lines downwards to a point below.  
+          And there aren't really walls because it's just empty space and you can 
+          see some of the fake planet sets in there.  fake planet sets the size of 
+          the classic earth before the builders ran amok.  And then there is a flash 
+          of light like a ring of fire below.  And some time later a huge concussion.  
+          The flash is like the sun or an h bomb.  And then there is a lot of waiting 
+          some more.  And eventually we see the dark ringed dot below getting bigger.  
+          Some more waiting.  Biggeer and bigger until we can see it coming.  Rising 
+          up.  A huge iron ball.  a thousand miles across rising slowly up until it 
+          reaches the pinnacle of its rise at just about eye level.  No it keeps going 
+          up above the godlike being.  no there is a slot cut into it into which the 
+          godlike being's gantry structure fits as the ball is going up and then he 
+          passes out the bottom of the ball.  And then these giant lazer beams come 
+          in from all sides and above and below lighting the iron ball up and 
+          compressing it into a marble.  1.7 inches across.  this marble has an odd 
+          mirror like structure that seems to warp everything that it passes in front 
+          of and seems to have no real surface.  This marble slowly descends down to 
+          the godlike being.  And then he cups his hand and it stops.  No it slows 
+          down but it's still descending.  And then the godlike being whips into a 
+          wicked break set and makes all these funny faces and noises.  And then 
+          goes silent and stately again.  All the while holding his hand just under 
+          the marble.  which is still slowly descending.  he keeps holding it up 
+          until it touches his hand and there is a violent white light explosion 
+          vaporizing the godlike being but it's okay because on that level there are 
+          no individuals.  so it's more like clipping a toe nail.  and the godlike 
+          being's fire fly remains zip at the speed of light into an acression disk 
+          which shoots out these blue beams above and below the marble.  which continues 
+          descending faster and faster.  it keeps going down until there is another 
+          bigger blinding white flash from below and a giant blue beam like a giant 
+          3D printer beam that hits a machine floating above with blinking lights 
+          and tech baroque and constructs a huge 3D printer which starts printing up 
+          more 3D printers which start spinning out the gold and silver spiral space 
+          filling mandelbrot like arms of the Jerusalem.  which begins to slowly descend 
+          but then it lights up it's million fusion engines on the bottom of the 
+          cube 1500 miles per side and the Jerusalem slowly rises up and out into 
+          space and hovers there the fusion engines slowly fade to black.  It waits 
+          up there for the people and classic animals and plants to board.  Then it 
+          collapses the other half of the iron core inside itself into another marble 
+          and shoots the small marble at venus.  mercury?  which goes into orbit 
+          around venus and starts syphoning gas and dirt and projecting blue beams 
+          one towards the Jerusalem and the other in the opposite direction.  And 
+          the Jerusalem unfurls giant solar sails and lights up it's million fusion 
+          engines again and slowly makes for polaris?  Although at first it looks like 
+          it's not moving at all.  Maybe it takes a week to look like it's moving.  And 
+          then it folds it's wings back down again and dives for the sun.  Rama like and 
+          slingshots around in a tight loop though the corona and back out and back 
+          into the blue beam from venus.  And takes off past each planet which crash 
+          through its wings which then get rebuilt immediately.  The space filling 
+          mandelbrot arms should have an open structure to them that could house 
+          living beings and what not.  Like an octopus arm made of open girders so 
+          that there are gaps like in a picket fence so you can see though the arms.  
+          filagrees.  the arms keep flaming out into sparks and rebuilding themselves 
+          in to different space filling shapes.  different topological architectural 
+          experiments.  BIG   .  So if you are living in a house built out of one of 
+          the spiral arms gold and silver like glass with black streaks of shade then 
+          your house will periodically build itself out bigger and bigger and grander 
+          and grander and then erase itself and start over.  These dwelling places 
+          are constant being made and destroyed in each and every second during the 
+          day.  So you just walk along the path and when you see a place you like you 
+          just walk in.  Anything you want.  Just imagine it and up it comes.  Brain 
+          scans don't you know.  No it's not the end of history.  The old history is 
+          forgotten.  like a dream.  this is where history starts.  maybe.  but what?  
+          think of something.  ok maybe the hangers on out in the drag web still 
+          clinging to the old ways of bad keep trying to climb up the web and get into 
+          the Jerusalem and cause trouble.  Why?  Who knows.  They can't seem to help it.  
+          They want to turn the whole place dark.  Like a cinder.  To defile it?  To 
+          kill it?  Why?  Who knows.  maybe they just like the absence of color ie 
+          Black.  they can't sit in an empty room   because if they did they would be 
+          torn apart    torn limb from limb.  I don't know.  you make something up.  
+          yeah God is crying.  So when the people of bad get their hands on the 
+          brain scanners in the Jerusalem they immediately start turning out weapons 
+          of mass destruction and blowing the place up.  But as fast as they blow it 
+          up it keeps rebuilding itself.  Which makes them really mad.   i don't 
+          know.  something.   and this keeps going on and on in different epochs.  
+          With different flags and different alliances.  And then there is a place(s) 
+          down in the core and out on the surface where fighting is not allowed.  the 
+          weapons don't work.  And the combatants just stand there and hate each other.  
+          well.   half of them hates the other half.  leave it at that.  comic break.  
+          the justice field.  people trying to whack each other and getting whacked by 
+          the field.  No free will.  Ok enough high concept.  I want a low concept 
+          character driven stories that take place on the Jerusalem.  These would be 
+          broken out into separate low budget films that could all use the common 
+          Jerusalem technology at low cost since it would already be installed.  And 
+          then I want high concept with synthetic beings being constructed out of gold 
+          and silver and shade and given life and souls and given a job to do likety split.  
+          And then what happens to them.  Out in the drag web old space ships are ion 
+          driving around just like in a conventional sci fi bar brawl kling on ball buster 
+          ride  going from asteroid to asteroid in the net just like they were little 
+          planets.  maybe they fight for democrasy?  make up old style governments and 
+          argue and kill each other a lot.   just like old times.  In the Jerusalem 
+          the various truth futures forms of headless government reign.  everybody 
+          can vote just by wishing it.   There is an infinite amount of space and 
+          abilities.  not limitless.  after several generations of time all sorts of 
+          weird societies of various different technology styles are built and rise 
+          and fall in the Jerusalem.   Maybe people carving an old style of life out 
+          of different pockets in the Jerusalem.  There are an infinite number of ink 
+          blots and each one is an entire universe.  It's a multiverse.  Maybe they could 
+          have a Big Bang in one of them.  The Jerusalem has sex with a mortal and 
+          BOOM.  How would the Jerusalem manifest herself.  A tall incredibly busty 
+          danielle? curvy venus with skin that changes color moment to moment a huge 
+          tierra that keeps changing bigger more garish and then smaller more like 
+          high and a 3 mile white downed gauzy train with blue bits that has a life 
+          of its own that seems to float at times.  and other times hefts back down 
+          to earth.  like a tail.  no.  and then she changes by getting squashed and 
+          reformed into a funny little girl.  who keeps changing into something else.  
+          I want to dam this mac keyboard make her be on the level of the OS in her.  
+          But even more.  She has all people in herself and so she keeps changing and 
+          each character is more intense or even in silence than the last.  She can 
+          flick her fingers and throw off sparks that fall to the floor new works of 
+          Motzart or Beethoven or Einstein.  There is a lonely left behind boy.  Who 
+          knows.  He just can't make it.  I don't know what.  He is cut off.  Maybe 
+          he is not cut off.  Maybe he is just jealous of other people getting married 
+          and having kids and what not in the tech restricted little world he lives in 
+          just off the y77th ink blot on a "solid" spiral arm( solid spiral arms are 
+          always made with a kind of picaso light super structure that you can see 
+          through but the beams in them can come together to make a solid place to 
+          build ).   But he's got something.  A spark.  That other people don't really 
+          see.  And the Jerusalem values this spark.  And she manifests herself to him 
+          when no one else is looking.  he tries to tell the others no doubt.  to brag.  
+          or something.  but he can't prove it and she won't let him.dam this dm mac 
+          keybord     first she manifests herself to him in all her glory.  And then 
+          she morphs down into this funny little girl his own age.  who keeps changing 
+          into something else.  and he falls in love with her and she opens herself up 
+          to him.  and they have sex.  and BOOM the Big Bang.  and he goes down there 
+          and finds various worlds and he finds one suspiciously like earth at various 
+          moments in history?  and he tries to tell them that he created them but they 
+          kick him down the stairs.  don't want to hear it.  or something.  what else 
+          what other deviltry       So if you look at the mandelbrot you see that no 
+          where in it except for the ink blots is there anything in it that is solid 
+          in any way.  Perhaps this could be included in the spiral arms of the Jerusalem?   
+          Perhaps you have to go into one of the ink blots to get to one of these Big Bang 
+          universes?  I want characters to be able to live on the spiral arms.  But I 
+          also want the spiral arms to be made of nothing.  So you can't live on them.  
+          You can only go into an ink blot.  oh poo.  okay so some of the spiral arms 
+          are solid and some of them are made of nothing but froth and ink blots.  I 
+          think the froth is an infinite number of ink blots that looks like froth.  Or 
+          maybe the ink blots could be like a black surface that you can stand on.  And 
+          then you can live on the ink blot by piling dirt onto it and that way you can 
+          still see the spiral arms and fly around in the Jerusalem.  Or the ink blot could 
+          be like a door.  Some one way and some the other.  Maybe solid spiral arms could 
+          sprout up out of the ink blots and people could live on those.  But the other 
+          spiral arms the ones made out of ink blot infinity you can never touch.  and 
+          these can never be completely destroyed by the hangers on of bad.  the vestigial 
+          hunters.  the blood lusters.    the not cyclist not vegans.   maybe sometimes 
+          they let the hangers on of bad in just so they have somebody to fight with.  
+          maybe there could be a Jerusalem movie like baraka where nobody fights and there 
+          is no conflict at all.  The end of history.  glenboogle.  A character driven sci 
+          fi nightmare.  Only beings who can sit in an empty room can live there.  only 
+          people who can sit in an empty theater can live there.   enough.  get specific.  
+          get busy people )<---[ comment ( i predict that she does cry ) ] )<---[ where does it end? ] )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( touch ups )
+          ( copyright kjell e godø )( 20140302 yyyymmdd ) 1:07 ( ok so when the marble 
+          is falling towards the godlike being when the 5 main characters kiev etc are 
+          looking at it from a distance it looks like the marble just keeps picking up 
+          speed as it falls and strikes the godlike being and vaporizes s heim like a 
+          bullet there is a bright white flash and the two blue beams like lasers shooting 
+          out of the marble up and down and the marble just keeps going down into the 
+          darkness.  But as the marble comes down the godlike being's mind keeps speeding 
+          up faster and faster the closer the marble comes so for s heim it seems to be 
+          coming down slower and slower until it seems to stop.  nearly.  to reach out 
+          and touch a marble.  also there are vast liquid metal machines floating down 
+          in a spherical formation around the marble.  smaller ones in close and massive 
+          ones further out in two or more shells.  as the marble falls these machines 
+          fall with it.  these machines should be interesting topological architectural 
+          artistic embeddings of space.  So you should be able to see through them and 
+          see the energy flowing within.  go wild.  get topological.  go architectural.  
+          i don't want to see any flying potatoes.  if i see one more flying potato i will 
+          cut my own heart out and swallow it whole and die a thousand deaths and leave you 
+          this veil of tiers to defile as you will.  also there are huge topological 
+          contraptions orbiting the earth in spherical shells.  maybe some of them look like 
+          fermilab.  but liquid metal so they are constantly changing shape.  and you can 
+          see the energies flowing within.  so these orbiting machines each one creates a 
+          microscopic tiny marble which then eats the machine that creates it and shoots a 
+          hypernova beam of blue particles down at the iron ball floating above the godlike 
+          being crushing it down into a marble.  some of these beams plow right through the 
+          earth so everybody has to be evacuated first except for the godlike being and a 
+          few attendants.  the linked battered hollowed earth  is destroyed by the birth of 
+          the Jerusalem.  sort of.  it becomes a twisted broken shell.  the Jerusalem creates 
+          another marble and sends it to venus.  It goes into orbit around venus.  Now which 
+          way is polaris?  Are they going to polaris or somewhere else?  so it is very likely 
+          that the marble's blue beam pointed in the direction that the Jerusalem is going 
+          to go is going to hit venus during part of the marble's orbit around venus.  
+          and so it is going to cut gashes into venus and throw up a lot of dust and gas 
+          which the marble will suck up and turn into a stream of light speed particles 
+          pointed at the Jerusalem's solar sails.  after a few thousand years or something 
+          there will be nothing left of venus and the marble will keep orbiting the sun 
+          in venus's orbit.  the star of the morning will be gone.  The venus marble will 
+          also have an entourage of liquid metal machines with visible energy beams flowing 
+          around inside of them.  And some will orbit venus pacing the marble and some will 
+          stay geosynchronous to venus.  Let's get all 2001 upside the public ass man.   
+          maybe it's not possible anymore.  people's attention spans have been reduced by 
+          incessant electronic novelty to the point of non existence.  that's why i don't 
+          want any mr potato head ships.  liquid metal but not smooth and shiny.  they 
+          can have rough edges and the usual techno baroque but they have to keep changing 
+          and pulsing and rewriting themselves.  and you have to see the energies sitting in 
+          the different parts of them and see that energy come out and be directed to other 
+          areas of the machine to generate different effects.  we should be able to watch 
+          the machines preparing themselves to do different things.  also there should be 
+          lots of little machines running on and flying around the larger ones.  like the 
+          liquid metal computer monitors in the latest superman movie.  the orbiting 
+          machines should be able to morph like that.  and be able to split up into different 
+          pieces and re-hook up into different configurations ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( and infinite number of universes )
+          ( copyright kjell e godø )( 20140302 yyyymmdd ) 1:44 ( kiev is standing on the 
+          ink blot foam right next to the surface of an ink blot that they are standing 
+          on and janis yells out : HEY!!! - YOU ARE STANDING ON AN INFINITE NUMBER OF 
+          SUB-UNIVERSES THERE TOP FLIGHT     And kiev lets out a Yelp as he jumps up and 
+          looks down where he was standing.  He was standing part on the ink blot and part 
+          off.  and jumps away towards the center of the ink blot and away from the foam 
+          that attaches to the edge of the ink blot they are standing on.  and kiev 
+          yells out : Well How are we supposed to get off of here?  each ink blot has 
+          it's own gravity.  janis says : step lightly.  and xenon says : we fly.  and he 
+          imagines a vehicle like a boat.  Once they get away from the ink blot then they 
+          float free.  If kiev stepped off the ink blot then he would shrink down and land 
+          on one of the microscopic ink blots in the ink blot foam he was stepping onto.  
+          and be lost forever.  until Jerusalem could find him again which might not be 
+          possible if he shrank down below her maximum level of microscopic resolution.  
+          or she could send in a lot of robot scouts in after him to increase the scan 
+          resolutions.  the Jerusalem is new so everybody who hasn't assimilated the 
+          manuals like kiev since he is a classic human and can't assimilate.  so they 
+          have to be careful not to run into any of the foam spiral arms because as they 
+          get closer and closer they shrink down and shrink down until they land on or 
+          in a mandelbrot ink blot embedded in the ink blot fractal foam.  it's all very 
+          high concept.  so how do i clear away all the high concept stuff and get character 
+          driven.  how do i get all the technology to fade into the background and just 
+          focus on two people in the Jerusalem.  And their day to day lives.  Which 
+          technology level.  What do people do in the Jerusalem.  What society.  What 
+          organization.  what collectives.  i want to focus here on a small set of 
+          characters in like a romance or something.  just on their interactions and 
+          the technology of the Jerusalem interacts with them in the back ground.  I 
+          don't really know how to make such a story.  dialog.  alls i get are dialog 
+          fragments.  like poetry.  disconnected.  can anyone behave badly on the 
+          Jerusalem.  do i need that?  somebody in danger of getting kicked off the 
+          Jerusalem.  out into the drag web.  thought police with brain scanners that 
+          can read your mind.  Jerusalem is reading your mind and she is judging you.  
+          if you get too far off the rails for more than 7 times 77 times then you're 
+          out.  what if somebody starts getting near that limit.  there could be a 
+          little girl out on the drag web who dreams of living on the Jerusalem.  No 
+          doubt that would be near automatic but i could put up a bunch of road blocks.  
+          maybe the road blocks are character building.  but she doesn't know that.  
+          maybe she has to break with her parents and her clan to do that.  can i take 
+          a character driven story that already exists and graft it onto the Jerusalem?  
+          no action.  all high concepts are in he back ground.  perhaps it is the end 
+          of history if you can have anything you want just by wishing for it.  forbidden 
+          planet?  could people incorporate rapid fire wishing into their relations 
+          with each other?  some of these foreign films don't have any evil characters 
+          in them like the japanese film about the woman and her cats.  good and evil?  
+          Jerusalem and the drag web?  what happens to society when everybody can 
+          have everything they wish for?  up to some large limit?  you have to have 
+          people who are evil to a degree that is below some maximum level.  or else 
+          people start wishing up weapons of mass destruction.  that is what hell is 
+          a set of relatively evil people with infinite abilities like red angels 
+          stuck together in a lake.  maybe.  somebody gets the idea of lighting the 
+          lake on fire and up she goes.  maybe.  there could be an amish like story 
+          but at a higher technology level.  where some of the kids want to move up 
+          to a higher level and the local church tries to stop it.  perhaps getting 
+          everything you wish for is something that is really hard to handle for certain 
+          minds.  if there are no restrictions no boundaries maybe only the trained 
+          minds like the monks and the amish can really handle it.  or will people 
+          just get bored with everything and go into a coma.  or will all the people 
+          who see this movie feel that way probably unable to live on the Jerusalem 
+          themselves?  nothing but walking twitch reflexes and lizard brains?  hmm.  
+          low budget Jerusalem movies about girls with cats.  a low budget Jerusalem 
+          movie about a girl and her cats with the Jerusalem rising up on all sides in 
+          the sky.  could that go?  a traditional classic now japanese city in the 
+          Jerusalem?  why wouldn't she just fly away?  like the amish were afraid of 
+          when the automobile came on the scene?  why wouldn't she just fly away and 
+          wander aimlessly?  she would have to look at the Jerusalem up in the sky 
+          and consciously decide not to go there.  Or a big high power plasma video 
+          screen could fake the classic sky including the heat of the sun.  sprinklers 
+          for rain.  and then the Jerusalem would just vanish.  what would being on the 
+          Jerusalem do to people's minds.  do they need to have certain restrictions or 
+          they just blow apart?  could be.  it seems to happen to the rich i have heard.  
+          perhaps people would engage in minute interactions of a subtle nature that 
+          wouldn't work in a film.  in a film that was trying to make money.  if you 
+          don't care about making money...  could you make a film about somebodies 
+          electronic interactions?  you've got mail?  boy meets Jerusalem boy loses 
+          Jerusalem boy goes on a quest to get Jerusalem back boy wins Jerusalem boy 
+          marries Jerusalem boy finds out Jerusalem is married to 500K other guys.  
+          And 100K other women too.  But that's okay because Jerusalem can be in 600K 
+          different places all at once.  Still.  He gets jealous.   if nothing bad 
+          ever happens to anybody will all the stories be girl cat stories?  could i 
+          make it blatant Christian.  Christian Science fiction?  That would get 
+          around the lizard brain and twitch response problems with trying to appeal 
+          to the usual semi secular semi atheist semi pagan all consumer tv baked 
+          basically semi evil sadd audiences.  Yeah, i could make it blatant Christian.  
+          maybe.  maybe i should look at some christian Science fiction,  could it make 
+          enough money to go.  maybe the animators could make everything in a couple 
+          weeks because it's all simple stuff anyway and it wouldn't cost that much.  
+          want reality.  but Troll did pretty good with not much money.    what airy 
+          day dreams.  enough. ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( jaycob )( copyright kjell e godø )
           ( 20140306 yyyymmdd ) 16:41 ( jaycob and 4 others face off against jerusalem in a 
           dull green fluorecent room made of different layers of frosted glass with angled beams 
@@ -476,13 +1264,78 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           inches in radius or diameter with fleeting flashes of weather blasting over it and 
           across it and around it instantaneously in random directions soundless and distant as 
           if in a image of somewhere(s) else at time lapse high speeds barely visible.  subconscious.  
-          jaycob : what is it?  jerusalem is silent.  jaycob : what is it?  jerusalem :  .  jaycob : hey what is it you dumb broad.  and he points a menacing middle finger at her like a gun and works his body up into a stance a menacing grimace momentarily flashing across his face and holding in anger and low impatience.  jerusalem : it's like a drug.  an involuntary jerk like a subconscious dance rips momentarily through jaycobs body and the others grin back and he grins back at her for the others.  and two of them bust out a malicious momentary guffaw which resolves itself into a low boil snear.   jaycob : wel Hey! drugs are my middle name broad.  bring. it. on.  the dot is about chest level and a few pixels across like a point in space.  dark red slowly glowing.  it has wandered out into the room away from jerusalem and towards jaycob while they were speaking.  she blows a kiss and it begins to move towards jaycob.  the dot slowly comes to a stop at arms length in front of him.  ( from now on we see the dot close up through jaycob's eyes we see it through his eyes ) and he looks at it slowly glowing in front of him.  his expression goes a little slack as he looks into it.  suddenly the 4 on the cushions near jerusalem perk up.  they look at jerusalem intently focused total on jaycob.  they look at jaycob.  they're expressions go slack and then begin to alarm.  they start to rise up from the cushions.  they start yelling.  half at jaycob and half at jerusalem.  and their arms begin to stretch out in both directions.  jaycob doesn't seem to hear them.  they try to rush jaycob but somehow they don't get up.  then they roll over stretched out on the cushions towards jerusalem and stretch their arms out straight towards her with the fingers apart straining like lining up an assault blaster.  and lightning comes out of their fingertips and blows jerusalem's skin off.  she glances at them and her skin grows back and she continues to look at jaycob who is still fixated on the dot.  more lightning and her skin blows off again and near instantly grows back.  she remains calm.  focused.  they set to with more murderous intent and her skin blows off and grows back faster and faster.  jaycob slowly begins to lift his left arm up towards the dot.  jerusalem seems to be in a strobe light of skin flying everywhere.  unmoved.  unblinking to jaycob.  one of the guys sees jaycob slowly raising up his arm and yells at him and breaks off and the strobe slows down a little.  the arm in the forground the guy out of focus into focus in the background on the cushions.  his left index finger begins to extend as his arm comes slowly up.  it bends back and buffets a little as it hits the shell of air.  and then it presses through.  we see jerusalem's eyes filling the screen the skin around them strobing quickly.  each strobe shows the muscles and bones beneath.  going faster and faster into a blur.  the eyes are very beautiful like gaga without makeup when they are skinned and like billiard balls when their ice is broken.  his finger comes up to the dot slower and slower.  the guy facing jaycob yells NOOOO and breaks off his attack and makes a herculean effort to get up off the couch and makes it miraculous and rushes towards him like an defensive line backer.  the dot melts into his finger like a snow flake and the glow sinks down into his skin on the finger print and sinks down into his finger like a glowing flare sinks down into the sea.  jerusalem slowly closes her eyes and begins to fade.  and then her body explodes splattering all over the walls.  the line backer in slow motion hits jaycob in the mid rift and knocks him back into fast motion and they go flying and hit the floor some meters back towards the grand staircase.  and jaycob yells hey!!! and struggles and grabs the arms around him and twists and wrestles them off and rolls over and flips the line backer off and jumps to his feet into a stance and ready to fight.  What the HELL are you doing?  and he looks into his left palm  and he looks around the room.  and he wonders where jerusalem went and he recognizes her and he brings his index finger back up and looks at the spot where the dot went in.  and jaycob says : hey what is this stuff.  i don't feel a thing.  jerusalem's remains squidge together like high speed wriggling worm pieces and pile onto each other and pile up into a small monster of flesh which parts up at the top into a wide mouth like opening pointing up to the high ceiling which opens and slobbers gaga gutteral modified like the robot in alien : wait for it ... topological curvature.  and then the mouth collapses under a rain of lightning that splatters it all over the walls again.  jaycob says : topological curvature?  with his face all incredulous still looking at the spot.  the others are all looking at him all of them on deck now and ready for action.  then his face goes slack.  and he looks up out beyond the walls.  and he says : oh my god ...              
+          jaycob : what is it?  jerusalem is silent.  jaycob : what is it?  
+          jerusalem :  .  jaycob : hey what is it you dumb broad.  and he points a menacing 
+          middle finger at her like a gun and works his body up into a stance a 
+          menacing grimace momentarily flashing across his face and holding in anger and low 
+          impatience.  jerusalem : it's like a drug.  an involuntary jerk like a subconscious 
+          dance rips momentarily through jaycobs body and the others grin back and he grins 
+          back at her for the others.  and two of them bust out a malicious momentary guffaw 
+          which resolves itself into a low boil snear.   jaycob : wel Hey! drugs are my middle 
+          name broad.  bring. it. on.  the dot is about chest level and a few pixels 
+          across like a point in space.  dark red slowly glowing.  it has wandered out 
+          into the room away from jerusalem and towards jaycob while they were speaking.  
+          she blows a kiss and it begins to move towards jaycob.  the dot slowly comes to 
+          a stop at arms length in front of him.  ( from now on we see the dot close up 
+          through jaycob's eyes we see it through his eyes ) and he looks at it slowly 
+          glowing in front of him.  his expression goes a little slack as he looks into it.  
+          suddenly the 4 on the cushions near jerusalem perk up.  they look at jerusalem 
+          intently focused total on jaycob.  they look at jaycob.  they're expressions 
+          go slack and then begin to alarm.  they start to rise up from the cushions.  
+          they start yelling.  half at jaycob and half at jerusalem.  and their arms begin 
+          to stretch out in both directions.  jaycob doesn't seem to hear them.  they try 
+          to rush jaycob but somehow they don't get up.  then they roll over stretched 
+          out on the cushions towards jerusalem and stretch their arms out straight 
+          towards her with the fingers apart straining like lining up an assault 
+          blaster.  and lightning comes out of their fingertips and blows jerusalem's 
+          skin off.  she glances at them and her skin grows back and she continues to 
+          look at jaycob who is still fixated on the dot.  more lightning and her skin 
+          blows off again and near instantly grows back.  she remains calm.  focused.  
+          they set to with more murderous intent and her skin blows off and grows back 
+          faster and faster.  jaycob slowly begins to lift his left arm up towards the 
+          dot.  jerusalem seems to be in a strobe light of skin flying everywhere.  
+          unmoved.  unblinking to jaycob.  one of the guys sees jaycob slowly raising 
+          up his arm and yells at him and breaks off and the strobe slows down a little.  
+          the arm in the forground the guy out of focus into focus in the background on 
+          the cushions.  his left index finger begins to extend as his arm comes slowly 
+          up.  it bends back and buffets a little as it hits the shell of air.  and then 
+          it presses through.  we see jerusalem's eyes filling the screen the skin around 
+          them strobing quickly.  each strobe shows the muscles and bones beneath.  going
+          faster and faster into a blur.  the eyes are very beautiful like gaga without 
+          makeup when they are skinned and like billiard balls when their ice is broken.  
+          his finger comes up to the dot slower and slower.  the guy facing jaycob yells 
+          NOOOO and breaks off his attack and makes a herculean effort to get up off the 
+          couch and makes it miraculous and rushes towards him like an defensive line 
+          backer.  the dot melts into his finger like a snow flake and the glow sinks 
+          down into his skin on the finger print and sinks down into his finger like a 
+          glowing flare sinks down into the sea.  jerusalem slowly closes her eyes and 
+          begins to fade.  and then her body explodes splattering all over the walls.  
+          the line backer in slow motion hits jaycob in the mid rift and knocks him 
+          back into fast motion and they go flying and hit the floor some meters back 
+          towards the grand staircase.  and jaycob yells hey!!! and struggles and 
+          grabs the arms around him and twists and wrestles them off and rolls over 
+          and flips the line backer off and jumps to his feet into a stance and ready 
+          to fight.  What the HELL are you doing?  and he looks into his left palm  
+          and he looks around the room.  and he wonders where jerusalem went and he 
+          recognizes her and he brings his index finger back up and looks at the spot 
+          where the dot went in.  and jaycob says : hey what is this stuff.  i don't 
+          feel a thing.  jerusalem's remains squidge together like high speed wriggling 
+          worm pieces and pile onto each other and pile up into a small monster of flesh 
+          which parts up at the top into a wide mouth like opening pointing up to the 
+          high ceiling which opens and slobbers gaga gutteral modified like the robot 
+          in alien : wait for it ... topological curvature.  and then the mouth 
+          collapses under a rain of lightning that splatters it all over the walls 
+          again.  jaycob says : topological curvature?  with his face all incredulous 
+          still looking at the spot.  the others are all looking at him all of them 
+          on deck now and ready for action.  then his face goes slack.  and he looks 
+          up out beyond the walls.  and he says : oh my god ...              
 
 
-( need to downplay assimilation up to this point )
+          ( need to downplay assimilation up to this point )
 
-the Lord founded the earth by wisdom and established the heavens by understanding. By His knowledge the watery depths broke open, and the clouds dripped with dew.  I am his guide star his girl know.  i am.
-) )
+          the Lord founded the earth by wisdom and established the heavens by 
+          understanding. By His knowledge the watery depths broke open, and the clouds 
+          dripped with dew.  I am his guide star his girl know.  i am. ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( artpop art pop balloon art far t art side )
           ( copyright kjell e godø )( 20140215 yyyymmdd )( lot of bankers artsiding lately           
           wonder if they had a push ) )
@@ -1055,18 +1908,1010 @@ the Lord founded the earth by wisdom and established the heavens by understandi
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( nobody thinks he can win )( copyright kjell e godø )
         ( 20140512 yyyymmdd )( 9:02 )( but nobody else does     ha ha ha )<---[ why do I waste my time on this shit.
         it must be my dis ease. ] )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-        ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-        ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-        ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Jesus pagent passion play )
+          ( copyright kjell e godø )( 20140523 yyyymmdd )( 17:27 )( i want the story of 
+          Jesus using all Israeli actors including the part of Jesus the more Arab looking 
+          the better and I want it woven into the Jerusalem somehow.  I wish somebody would 
+          just do this.  That Powell guy did it best I think.  an Israeli that has the same 
+          kind of effect or a different one that is as good. ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Jerusalem culture )
+          ( copyright kjell e godø )( 20140523 yyyymmdd )( 18:07 )( what if the Jerusalem 
+          had a culture of no lying.  ever.  no white lies.  nothing but the most immediate 
+          truth.  the autistic truth.  no.  the most immediate truth.  and yet they don't 
+          kill each other.  Jesus showed what happens when you tell your truth and keep on 
+          telling it.  you get crucified.  I want to imagine a culture where there is no 
+          lying ever.  and what that might mean.  and the clash between that culture and 
+          the one we have now where everyone hides knives always at the ready to carve up 
+          anyone's truth almost immediately.  concealing weapons so as to subvert defences 
+          until the most opportune moment.  lies that conceal weapons until the most 
+          opportune moments.  pretty words of reconciliation from Henry the eighth.  drop 
+          your weapons everything is fine.  we love you.  all is forgiven.  come on in.  
+          an entire culture of surface smiles and painted goodness that hide tombs and 
+          dead men's bones.  and all the media that feeds on that status curling it up 
+          into a jillion fractal riddles smoking it's simplicity into a mystery of complexity.  
+          here is your goodness look at it your Ronald McDonald and here are the hints of 
+          the tombs and dead men's bones inside.  and here is you not knowing what's inside 
+          and here is us showing you.  by drips and drabs.  so you won't know.  until it's 
+          too late.  and here is us showing the satanic brush stokes that have been 
+          embedded into the institution of Jesus.  by all of you.  even without knowing 
+          what you were doing because you were too stupid to know any better and what 
+          would happen when you made him into an institution in a land where not lying 
+          instantly targets you for a prey and gets you crucified.  even today.
+          so it's the Jerusalem no lying culture clashing with the old cool.
+          what do you mean there's no lying
+          impossible
+          everyone would be killed ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( divorce first then 
+          marry )( copyright kjell e godø )( 20140529 yyyymmdd )( 19:19 Seattle )( well    
+          being divorced was fine for a while but then we all just got tired of it so 
+          now we are married again      yes it's official     yes     that's right
+          well you know you see it's like this living together as a divorced couple 
+          just got tiresome         after a while        so we just  decided to live 
+          married      yeah       that's right    you never know what you've got until 
+          it's gone       right       well we hoped to be an example        of what is 
+          possible    you know?       of what we are all capable of       given the 
+          right motivations    yes    that's right     you've got it        we wanted 
+          to send a message that     you know      you don't have to be stuck in a ball 
+          and chain       rut you can find out what you've got      without really just 
+          having to lose it all          you can just taste the loss         for a while
+          and then come back from the brink        without going      really      anywhere 
+          near it           yes         yes      some others as well        but we don't really know about that ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( plot 1 )( copyright kjell e godø )
+          ( 20140601 yyyymmdd )( 10:43 Seattle )( ok so Aurora is Kiev's wife     she 
+          was created in a bathtub one day to    
+          Amish land is part of a historical continuum where the further to the west 
+          you go along the map the further into the future you go    but each place 
+          you stop at is frozen in time at a certain year      or even a certain day
+          or even a certain minute     or even a certain second
 
-    )<---[ storyIdeas ]
-        
-    ( plot--
-             
-    )<---[ plot ]
-  )<---[ script jerusalem ]
+          Most places like cities exist in a certain year and all the media is from 
+          that year when they get to the end of the year then everyone can memory 
+          wipe them selves back to the beginning of the year and everything starts 
+          over from the beginning of the year and tiny robots tear all the stuff 
+          built that year and put up all the stuff that was torn down       if 
+          someone wants to keep their memory they can try to do the year over but 
+          better this time       no one has to age unless they want to or they can 
+          age backwards 1 year and start over        if they want to move on to 
+          the next year they can move to the next copy of the city directly to the 
+          west or if there is no room for that then on one of the other artificial 
+          earths inside the earth they can find a copy of the city from a later year
+          if you want you can join a historical society where everyone's brains are 
+          connected and people try to reenact 
+          the lives of people who actually lived and say every thing they said and 
+          do everything they did and try to reenact as actors in a city wide play
+          these historical people are written up by the society writes up the 
+          dialog like they might have said and comb through the brain archives to 
+          try to figure out the most authentic way       other people can just wing it
+
+          some places where famous or notable things happened might reenact 
+          something that only lasts a few minutes       and then it rewinds back 
+          to the beginning and replays maybe with the same people acting it out or 
+          with some different people acting it out       some plays of it might 
+          stick to the script and others might try to deviate          since everyone 
+          has all the scripts recorded in the databases in their heads it is easy for 
+          them to say the lines and learn how to act it out by experiencing what
+          famous actors in that role experienced while playing it out
+
+          there is a city where people are just improvising musicals all the time 
+          singing and dancing large or small musical numbers that only happen once 
+          or keep getting replayed totally on the fly and orchestrated by the 
+          script wriiters and musicians in the common brain sphere that everyone 
+          inhabits there      the people in that city are devoted to improvisation
+          it takes a short while to get up to speed with the aid of brain apps
+
+          there is a Vietnam reenactment where you keep going west and get to the 
+          end of the war
+
+          so they camp for a few days with some soldiers      who have forgotten 
+          that they are in a simulation and no amount of arguing can wake them up
+          and they just sit around the camp fire and talk       for three days
+          and then       they get the word      but Kiev or Vix or Vix screws it 
+          up and they wind up Asian       and after the battle       they spend 
+          another 3 days in a Charlie      in a Viet cong camp     sitting around 
+          the camp fire        and the Americans start breaking cover arguing with 
+          the Viet cong     but they can't break cover because they look Vietnamese
+          just an idea     the idea is to slow it down and just let the actors do 
+          what they do       this could take up one episode in the cloud      if 
+          anyone wants it     be my guest
+
+          if you die in the war you can decide if you want to be resurrected or not
+
+          why does this vacuuming always take so long      I don't see the piles of dirt on the hard wood
+
+          Aurora is Kiev's new wife ( I will stick it in a market and let you all 
+          mangle it   I mean perfect it ) but she catches this brain virus that 
+          synthetics get      and the virus is called Vix       and Aurora becomes 
+          Vix       and then she knows she is synthetic       and that drives her 
+          crazy      she becomes subject to extreme bouts of volatility and extreme 
+          calm which never last       raychell Racheal but when they meet Jerusalem 
+          lg gl ory she gets the power to throw off the virus once and for all
+          and then she has to decide if she wants to be rid of her disease
+          maybe she gets rid of the bad parts       but the Vix virus negotiates and 
+          so the bad parts can come back at random times but not for long Aurora gets
+
+          so they get up to the present day
+
+          just prior to the singularity
+
+          up to now the audience has always known what is going to happen next 
+
+          road trip
+
+          but now it no longer knows
+
+          so we get to the chase episode      where they go so far so fast that they 
+          run right off the edge end of the world
+
+          and find out that the world is a half sphere inside of the earth 
+          and is only a simulation
+
+          so they fall off of it
+
+          and find their way to the true surface of the earth       and then 
+          they have to ride across the inside of the surface of the earth to 
+          get to where the Jerusalem is       and get out to her to board her
+          to stow away
+
+          and almost meet the beings who have been fighting over them
+
+          but every time the beings try to meet them      they thwart them     no meeting
+
+          they almost meet the being called vix who created the virus that 
+          infected Aurora     but not quite
+
+          they see the truthfutures markets where they are being traded
+
+          where they see the Jerusalem
+
+          and stow away somehow         slow       now they know that their 
+          every move has been watched by this crowd of higher beings      or 
+          is it just one       or is it millions        they can't tell         
+          so how do they react to that       do they trust these beings
+          or do they start trying to defend themselves against them      
+          do they start speaking on multiple channels       can they help it
+
+          I'm sure there are lots of people who can figure this stuff out 
+          better than me     maybe you?
+
+          but I get final say
+
+          and then meet her
+
+          and go on a quest?     to cure Vix?       I don't want one of these 
+          break neck quests where nobody has time to breath      I want a slow 
+          quest       like in a war     long periods of slow       not going 
+          anywhere not doing anything       really slow       slow        
+          punctuated by short blasts of trouble breathing        and in those 
+          slow parts         the director of screamers     got it wrong     
+          that long walk was the best part of the movie     it was not to long
+          and I want to make it longer    until the audience dies     and gets 
+          resurrected        ok back to reality
+
+          Derek
+
+          Red dwarf
+
+          Seinfeld in a science fiction movie     no something completely different
+
+          battle star galactica
+
+          science fiction documentary comedy
+
+          can I put every genre into one single cloud ? ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( what is 
+          the goal maybe there is no goal and no time limit )( copyright kjell e godø )
+          ( 20140601 yyyymmdd )( 23:17 Seattle )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( bible )
+          ( copyright kjell e godø )( 20140601 yyyymmdd )( 23:20 Seattle )( genesis 
+          is gone through to show how the first chapter is about evolution and the 
+          Big Bang and the second chapter is about the Eden experiment that shows 
+          that the best way to get man to do something is to tell him never to do it
+          then the stuff about the new Jerusalem      then the stuff about the end 
+          of the sun and the travel to new planets with new constellations in new heavens on new earths ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( on the surface of 
+          the earth )( copyright kjell e godø )( 20140602 yyyymmdd )( 6:18 Seattle )
+          ( so the main characters get thrown down onto the inner surface of the earth 
+          and they can see all the simulated planets above them because they are 
+          covered by lights like stars and there are floating lights that shine out 
+          and light the place up but it is dark       so relative to the center of 
+          the earth these planets are above them but relative to the centrifical 
+          force that keeps them on the ground the planets are above them        
+          the earth is hollow        it was hollowed out when the builders ran amuck 
+          after the singularity      pay him       and then produce all his series 
+          into movies          why hasn't it been done already         so they lose 
+          the skooter      and have to walk      but they find it again         they 
+          walk to the Jerusalem on the inner surface of the earth ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( the secret life of 
+          Walter Mitty )( copyright kjell e godø )( 20140606 yyyymmdd )( 8:11 Seattle )
+          (     ( [_x_]::-- 22:44 ( 38 ) Kris sit ( distant ) & Watch Movie Netflix 
+          ( the secret life of Walter Mitty ) , Watch Movie Netflix ( the secret 
+          life of Walter Mitty ) , Watch Movie Netflix ( the secret life of Walter 
+          Mitty menu video )<---[ menu video ( why does she have a guitar
+          there are no guitars in the movie           any conjecture should be beyond me
+          she searches she is uncertain        then she sees what she was dead against
+          hoping for         she has it        it is hers        she locks onto it
+          and rushes it         abandoning all hope       a little gasp      she was 
+          uncertain but now she knows        she thinks she knows        and it makes 
+          her beyond glad      how does she do this        is she faking it        i 
+          didn't think that you could fake that       how do actors do it
+          i guess really proficient actors can        what is going through her mind
+          when she knows it are rolling       is she imagining something that actually
+          happened to her         replaying it      was it one take        or 146 ) 
+          Hy8 ] , Eat ( 1 milk & 4 taffies & 1 wine & expensive cheese & pretzel 
+          pellets ) & Vibrate ( i have some similarities with this Walter character 
+          a few distant ones ]elsewhere[       i don't feel any physical stress anymore
+          and this is not just wishful thinking         i have done the 
+          "samari imagine" total defeat thing so many times hundreds thousands
+          but i didn't know what it was called        i still don't        and i have
+          no master        excepting Kris etc        i am not even my own master
+          all i do is concentrate on perfecting what little magic tricks i have
+          and that is all        and keep imagining total defeat          but it 
+          doesn't seem to affect me anymore          practice makes perfect
+          so i just say      let's practice       let me practice       and practice 
+          all the way         but it keeps going wrong       but so what        a 
+          few things go right          free of fear is liberating        but i am 
+          still reluctant to attempt things i know i am probably going to fail
+          that i am not good at              go . . . . ) )      ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( christian 
+          shooter front and center page )( copyright kjell e godø )( 20140606 
+          yyyymmdd )( 12:52 Seattle )(         ( [_x_]::-- 11:45 ( 68 ) Exercise 
+          hiking & Mom talk ( why did he do it ( probably he thought he was going 
+          to get where he thought he was going where it said on the cards all in 
+          due time my pretty all in due time says the fine print the public prayers 
+          should be praying for him they should be visiting him the Amish would do 
+          it come on ya yupy christian panzies if they could do that it would 
+          make the lie in all our left hands fade a bit and maybe we could tack 
+          a little more towards the golden rule and be less mixed and this kind 
+          of thing would be harder to pull off           ( with half the media 
+          half so fucking evil       because that's what the astheists and half 
+          the rest want       ( maybe that's why the american mass comes down 
+          so hard on these mass killers here in america because they know the 
+          same s is stroked and pleasured in them regular daily in the movies 
+          and on TV and on the radio and they know their secret avitars always 
+          get wasted before the credits roll to slap them out of it and keep 
+          their secret shit in the horse safe from their notice hate themselves 
+          secret from themselves for it and so they come down so hard on this scape 
+          to try to wash the blood out of they own       but they only wind up 
+          staining they hands worse       with new blood and yet more blind 
+          everlasting no mercy      as if some forgotten twisted astheistic 
+          american puritanical instinct compels them to increase chaos blind ) )
+          maybe harder to pull off like it is in Europe like in norway    
+          where mass murderers get 20 years max         s mixed like me       
+          if only i could let go of my defences          I would be pure          
+          aaaa I'm fucking mixed     I can't let go of my s      my s is in me
+          and I'm clinging to it     and I'm trying to increase it        maybe
+          I should think about it at least       I should think about it at least
+          think about it )<---[ lie and left match I don't know what the fuck it
+          means you figure it out you bunch of leftie astheist bastards    the
+          lie in our right hands       it makes more sense but I don't like the
+          sound of it ] ) )<---[ aprox time meta note ]         ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Baraka Samsara )
+          ( copyright kjell e godø )( 20140609 yyyymmdd )( 17:36 Seattle )( What 
+          if zero or more of the Jerusalem episodes ( parallel sequels ) was similar 
+          to Baraka or Samsara.  Just let the renderers go bananas.  Anything you 
+          can imagine is fair game.  Rules : ( RuLES.!? ) Rules : 1. No caves.
+          ok so what do these rules these architectural Ten Commandments lead us to.
+          There can never be more 
+          than 3 walls in any one place.     There should always be unimaginable 
+          topological complex mind bending space everywhere such as would make 
+          frank lloyd wright weep.    No caves. .1       You should be able to 
+          see everywhere else from everywhen else.   Gardens up in the air.    Wild 
+          fractal plants that repeat themselves up and out and into the distance.
+          Make the architecture be a character.  Like in Japan.   So the camera is
+          floating and moving through these spaces.      Spaces that make people
+          stick together because divorce means they would have to leave this place.
+          And we see faces.    All sorts of unimaginable faces.  So real.    That 
+          tell something about who they are.       And we see the neutron stars 
+          and black holes that power the place.   floating up in these vast sort 
+          of spherical but more complex with spires and conduits rising up to direct 
+          the energy.     the crab in its entirety       You can see the energy 
+          flowing through the fractal conduits and circulating outward into the 
+          capillaries.   Like that Cosplay Tron prom dress and girl. on pinned.com.  
+          WOW.   with the neon in the toes.  zow w w      Jerusalem is like that 
+          only infinitely complex.  with blue lights up her dress.    So once you 
+          get inside the Jerusalem it's infinitely vasti in there so go all out.
+          And combine the big spaces with the Mandelbrot kind of thing.    the
+          bigger you get the further out you get the more it looks like the 
+          Mandelbrot baroke.    Large places with intimat spaces but no walls.   
+          and gravity going every which way like in MC Escher.        Maybe these 
+          spaces and 4 5 6 ... dimensional spaces that we fly through can wind up 
+          in other episodes.  that's called reuse.              hoaaaa fuck me
+          they tell me I got to let evil in           blast.         not in this 
+          episode this episode is strictly national geographic       before it got 
+          corrupted.     so there is this möbius looking group of three teens in 
+          one of these morphing morning         it's always either early spring 
+          morning or late dusk in Jerusalem.    ok sky is blue but in Jerusalem 
+          the sky has invisible vector fields going through it and directing the 
+          space in all sorts of unexpected ways.    intimat spaces that formed up 
+          around them.    space forming up into couches only partly xpvisible.     
+          very seusian no.   a taste of seusian.   let topology be and Mandelbrot 
+          and etc etc etc be your guide.    and strange translucent forms and 
+          shapes form up between them glowing up from blue arc cores that spin and 
+          transform inside out and back again.   As they speak they create what 
+          they are speaking about in the air and all around them rippling out 
+          wards into the light years.      they turn into the characters they 
+          speak of and act it out.    they suddenly spark into an improvised 
+          number    and you can sort of tell by the irregular pauses that they 
+          are making all this stuff up on the spot.      another Mozart cantata
+          never seen the light of day before and now gone never again will.
+          So like ruz Kiev as a Amish kid from fake authentic earth       ok so
+          maybe         ok so       a little bit older?      or   what       hmm.
+          running out.   is running out.        he is trying to interact with
+          these kids who were spawned by the creation of Jerusalem.     these 
+          möbius looking kids with the jester clothes that are not quite there 
+          on their bodies their bodies are the clothes and the clothes are their 
+          bodies and you can see through them moment to moment in different ways.
+          what if we made it really realistic and totally Jerusalem at the same
+          time.      so you think you are in a doc standing in front of the
+          pyramids you can see the pores and smell the thick layers of mundane
+          but now you realise you are in the Jerusalem and it totally freaks you
+          out this combination of the Jerusalem and the mundane both going 
+          infinitely maxed        at the same time          and keep changing 
+          and relayering according to their thoughts.       so one episode is 
+          just a conversation like my dinner with Andre but infinitely complex.
+          and in the Jerusalem.      And part of the conversation is a topological 
+          proof or statement or algebraic topologic thing grafted onto a story.   
+          And when you get to the end of the story you get to the end of the proof.
+          The theory of relativity.     So there are companion episodes that go
+          through all the details starting from the ground up or hyperlinking all
+          the way down that you can get if you are interested to know.   the full
+          catastrophe.   the mind of E      it should be graphted onto some kind 
+          of Jerusalem story so the story informs the theory and the theory informs 
+          the story.     and they talk about it.    they express it with the 
+          time and space and light and dark and sound and silence around them.
+          they take on the different characters        and the girl becomes Vix
+          and shows Kiev what is going to happen to him      without telling anyone
+          not Kiev not the audience no one       but then in another episode the
+          whole Kiev Vix thing starts happening        and what it does to Kiev.
+          as he is watching it unfolding and remembering.   and it solves some 
+          piece of the proof.     of something.         and glory saves him at 
+          the last second        after his death        or not      you could 
+          get lost into there if you want to go down that journey that khan 
+          journey.        so one whole episode is just Kiev and these three 
+          möbius kids conversing in extemporaneous music and light and theory 
+          going everywhere right there and every when right at the speed of thought.
+          plays within plays within plays.      and then they trip out to the 
+          place where each musical only plays once and they make it up as they
+          go singing and dancing and warping the fabric of space and character
+          all new all the time no spectators.      we're is the pain       if
+          there is no pain there is no story          no pain           a 
+          conversation             mundane         yeah but if we are not staring
+          down the throat of death we don't know where we are.          maybe
+          they visit pain        the long echos of distant pain.        what
+          is it to be human.          can you be human without pain.       can
+          you be human without eating someone.s cow life.       vegan.       
+          is this going to be an infinite budget mundane.         what do they 
+          talk about.          can the story of the Jerusalem be grafted onto 
+          the theory of relativity and topological curvature.     like that 
+          guy      from before      the glory sank down into his finger like a
+          red dot           can we graft the story of Jerusalem onto the story
+          of topological curvature.     and lead people into that whole thing
+          so if people actually go there and we  take them in other episodes and
+          games or what then they can finally know what he was saying when he said
+          oh      my    god       maybe they visit pain going back to earth and
+          see the people and all the connections and combinations like rays
+          coming out of everyone some light some black and try
+          and each ureika is another piece in the puzzle.        maybe it's too
+          much.           glory    lets herself be trashed           no
+          I don't want to go there again    yet   yet    yet again        glory
+          lets herself be trashed      in one episode     like the time bandits
+          to flesh out this whole pain thing          and then she cleans it up
+          when all is lost      at the end       and we see time and space warp
+          into the plot       on the way down a black hole )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Kiev Amish )
+          ( copyright kjell e godø )( 20140610 yyyymmdd )( 15:44 Seattle )( I 
+          finally figured out something about Kiev.    Kiev is Amish and so he 
+          is trained never to defend himself.  He believes it.  He wants it.  And 
+          that is easy in the Amish lands.  but when he goes out there beyond 
+          the walls then he gets tested.   I don't know how.   I see a short 
+          guy in a group who gets off on taking him down.   so is he silent?
+          does he talk?  what does he say?   does he move?  does he just stand
+          there?   so he gets no respect because none of them know or care 
+          anything about what he is doing.  does he look down or does he look 
+          them right in the eye.  does he change what he does?  does it turn 
+          into a joke?  does it get humorous.   if one of them is getting his 
+          rocks off by the beatings than can they ever end?  do the rest of them 
+          stop it or are they all getting off on it.  so they pee on the red 
+          scooter.  and they force a race but the red scooter won't go.  so they 
+          pee on her again.  when they are leaving then she goes and they turn 
+          around and get knocked off their feet by the shock wave.  but they 
+          can't see her.  just a blur of dust.  on the horizon.  more later.  
+          at some point he gets forced to defend himself and then it becomes 
+          apparent that he was not standing down all the time because he 
+          couldn't do it.  he does it really well.  in the movie.  and this 
+          is kind of shocking.  something to do with Vix.   but she has a 
+          trump card.    herself.      he's winning and winning and winning 
+          but in the end she has a trump card.        either that or she 
+          infiltrated the government. bah.   maybe...     and it turns out 
+          somebody was helping him win.     so it wasn't even him alone.       .... ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: 
+          ( TruthFutures relentless.com )( copyright kjell e godø )
+          ( 20140610 yyyymmdd )( 15:59 Seattle )( so like theStranger.com 
+          has their article about relentless.com then they can create a 
+          question market in TruthFutures and link it to their story.  
+          so their readers go to the market where they have their market 
+          forum which collects all the spawned market forums.  and they 
+          can create question market values for each of the questions they 
+          want answered about relentless.  and their readers can buy and 
+          sell these questions.  for free using free future bucks.  but 
+          you only get a billion unless you cheat.  we will try to shame 
+          the cheaters or something.  and each buy and sell can have a market 
+          forum on the chart where their readers can comment on all the trades.  
+          they can make the questions efficient so their readers can trade back 
+          in time.  the price searches can average into one whole index or 
+          cancel each other so only the last trade matters.  there can be an 
+          infinite supply of the question or a finite supply so that it can 
+          be cornered.  so each new piece of info coming into the market 
+          authorities cause the readers to trade and back in time if the 
+          stranger desires it and people can comment on the trades right at 
+          the place on the chart where the event happened and you can see the 
+          chart's reaction.  so hopefully this would amplify the strangers 
+          story and make it have more of an effect on relentless.  and if 
+          relentless got addicted to TF product real time chart based 
+          ratings first we do it without their permission then when they 
+          shut us down we try to inject our patent into them.  once we have
+          their attention.  and never sell out to them.  and then we can 
+          zap them when they are zapping others and get some leverage which 
+          can be focused back into the markets.  more later. ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: 
+          ( random dialog experiments )( copyright kjell e godø )
+          ( 20140612 yyyymmdd )( 5:57 Seattle )( 
+          ( [_x_]::-- 5:57 ( 650 ) ---> Work TF Get Kingston unit going 
+          ( fail funnyfarm ( neighbor's powerful wifi is gumming it up ? 
+          it was going fine I set the wifi password on the K unit and some 
+          other thing(s)(?) and was checking the wifi hookup to the iPad 
+          several times and suddenly the K unit went missing from the list 
+          of wifi on the iPad all the wifi that are usually there disappeared 
+          and there was only this HOME-99F7 which is even more powerful and 
+          higher on the iPad list of wifi at the top actually higher than our 
+          own DSL wifi which is only 4 or 5 feet from this iPad so you would 
+          think it would be top on the list but it's second to this HOME-99F7 
+          thing which must be really powerful in order to do that.  Why do 
+          they need so much power and how do they get it?  briefly a wifi named
+          "funnyfarm" showed up on the iPad wifi list after the Kingston unit 
+          disappeared and then funnyfarm disappeared also so there is now just 
+          our wifi and this HOME-99F7 left.  So this leads to the Kingston 
+          unit is defective or I set it up wrong or perhaps this HOME-99F7 or 
+          this funnyfarm had something to do with it? did they listen to the 
+          password being typed into the wifi and then take over the K unit 
+          and put some virus on it to shut it down?  or are they just 
+          overwhelming the K unit's channel 11 with static?     99F7    
+          is 6 sets of 3 fuck 7     so it's a bunch of 6 good trinity angels 
+          that fuck 7 = god, so it's 6 = satan little Christian angels or 
+          wolves in sheep clothing fucking up the christian.   so i could 
+          stand in for the christian since that links to me since i am one.  
+          so it's satan F christian.  perhaps they were ready to do it?  
+          waiting? waiting a long time?  waiting a horribly long time?  
+          waiting a vastly mind bendingly nauseatingly loooong time?  
+          were they previously set up?  if so then they must have known 
+          about the K unit?  by key logging or amazon breach or amazon affiliate 
+          breach?     ( jerusalemDialogExperiment--  naaaaaa that's impossible.
+          no one would ever do that.  it's impossible.  it's too inconvenient.
+          no one would ever inconvenience themselves like that.  it would
+          be too much inconvenience.  it would just be too inconvenient.
+          people are good.  it would be way too agrivating.  right off the
+          bat.  almost immediately.  agrivation.  and for what?  what would
+          you do with a thing like that being a good person?  it would be an
+          immediate afront to your own goodness.  the subject would just never
+          come up.  nobody could ever value such a narrow near useless
+          capability that gets you nothing not even anything not even remotely
+          useful like reading the New York Times or any other useful and
+          profitable and good thing - so much that they could go to such
+          agrivated inconvenience to get it( ruz as autist or nic Torrance
+          or harri ).  it can't happen.  it is humanly improbable.  such 
+          people do not exist.  case closed. )<---[ end dialog experiment 
+          ( meta note ) ] ) ) , Give up ( abort ) , Sleep , Get up , 
+          Bathroom 1 , Get hooked up to the CPAP , Edit Eli Pages doc & 
+          Visit web ( ? ) , Kris talk , Sleep ( amusing dreams I don't 
+          remember but I wake up good but wanting more sleep ) , Get up , 
+          Bathroom 1 , Diagnose charger , Get hooked up , Write self This 
+          todo bullet ( hypergraphia ) )
+
+          ( [_x_]::-- 6:37 ( 40 ) Rewrite previous nearest todo bullet 
+          ( hypergraphia ) & Imagine them saying it ( i wonder if they 
+          would like to say something like that.  i have no idea.  no idea.  
+          at all.  I liked imagining them saying it.  maybe it's too goofy.  
+          probably needs to be modified.  what does it link up to.  it should 
+          link up to something.  what.  I don't know.  I do not know. k 
+          channeling k ) )
+
+          ( [_x_]::-- 6:44 ( 7 ) Write the previous nearest todo bullet ( stop ) )
+
+          ( [_x_]::-- 6:46 ( 2 ) Stop )
+
+          ( [_x_]::-- 7:10 ( 24 ) ---> Work TF Write nda )
+
+          ( [_x_]::-- 7:26 ( 16 ) Get up , Trim , Kris talk ( the back door
+          was left open last night but we are still alive ( too dead ok 
+          enough ) ) , Bathroom 1 , Get hooked up )
+
+          ( [_x_]::-- 7:38 ( 12 ) Take the d n meds ( what he's actually 
+          going to do it just how I asked him how the hell did that happen 
+          that never happens nobody ever does that ) , Kris talk 
+          ( jerusalemDialogExperiment-- the alqaeda has come up and won 
+          all that money wasted 1 trillion + all because we couldn't change 
+          our mind yes but yes but now it's just to watch for the alqaeda 
+          within the alqaeda to come up and see if we can link with that he 
+          quit paying them and gradually slipped over the face of his cliff 
+          too late now if he tries to restart the payments now he will lose 
+          too much face he will lose too much of his face maybe they were not 
+          happy when the checks stopped coming I don't know you think the 
+          alqaeda boys were not too happy that's how we do it TaDiTion or 
+          maybe he should have just said right off the bat ok here's the deal 
+          this is now a market this is your market and you are all traders 
+          in it and I am the head trader it's my job to keep you bozos from 
+          killing yourselves and us and the market with you now I know that 
+          by tradition the leader cannot change his mind or he would lose 
+          too much of his face but we don't do it that way here not anymore 
+          I don't do it that way here you don't do it that way here not any 
+          more here a trader that lives changes his mind all the time if he 
+          refuses to change it when the market is moving against him he will 
+          not live much beyond that face save op of his core of humanity of 
+          human bias only one in a million will live the rest will stay as 
+          they are and apparently we have not lived beyond it either no he 
+          has to about face and then he has to about face again and then he 
+          has to about face again again and again all day every day until 
+          the last day know all the options and lean toward your contingency 
+          for the ones that seem to be happening if you are wrong which you 
+          will adjust and that's the way we do it around here and that is 
+          our only constant and that is my job and that is what you should 
+          expect from me and that is what I will expect from you from now 
+          on starting today and starting now ( Christopher walkem told me 
+          i listened let thim figure it out nezpa ) ) , Swallow )<---[ meta note ]
+
+          what if one of the jerusalem episodes has all different actors 
+          playing all the parts and you see them replaying the same part over 
+          and over again giving it a different spin each time and then you 
+          could chose which ones you want and see just those it would increase 
+          the replay ability of the film something fearse              not 
+          breaking the forth wall        no walls
+
+          So Christopher could give it his spin first and then the nezpa 
+          guy and the ruz and then nic for laughs etc etc etc      ok not 
+          for laughs this time      ok baggage       I don't care         
+          throw the baggage away        and then let the new guys have it    
+          we are going to need more bandwidth           ok one giant ego 
+          popping baggage throw
+
+          enough
+          ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Christopher Walken )
+          ( copyright kjell e godø )( 20140616 yyyymmdd )( 5:37 Seattle )( 
+          ( [_x_]::-- 5:34 ( 76 ) Visit web ( Wikipedia : Christopher Walken , 
+          theadherent.com : Christopher Walken )<---[ there are a few core 
+          similarities 2 of them that are completely different.  these two are 
+          exactly the same in every way out to 17 decimal places in every 
+          characteristic but this one is way way better than that one there's 
+          just no comparison.  I would want him to play something different 
+          from his stereo type.   I would like to make or have made an Jerusalem 
+          episode where there are all these typed people doing the exact 
+          opposite of all their types.  the good guys are evil and the bad 
+          guys are good and the sane people are crazy and the crazy people are 
+          sane.  it will be a fiasco.  no not a fandango a fiasco.  ok so maybe 
+          they do their type at first or at last or intermittently I don't know 
+          but they totally blow it out of proportion so it looks like a con and 
+          then do the opposites more suttle.  ok 3 episodes. ] )<---[ meta note ] ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( quips )
+          ( copyright kjell e godø )( 20140618 yyyymmdd )( 15:24 Seattle )
+          ( I don't want to be your friend why should I I don't trust you I 
+          don't trust you any further than I can shoot you ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( fish )
+          ( copyright kjell e godø )( 20140618 yyyymmdd )( 15:27 Seattle )
+          ( I was in the Fred Meyer pushing the cart and watching blade 
+          runner on the iPad and I'm left thinking I want to make Jerusalem 
+          as good as blade runner because you know what even though I have 
+          already seen it somewhere between 47 and 747 times because I used 
+          to watch a piece of it every day before going to the u with my brother 
+          and polite James for 8 years I still am not tired of it it's like I'm 
+          seeing it for the 27th time all over again so how do I do that
+          son I think we need to step back here for a minute
+          here it comes         we need to think about our demographics here
+          demographics         yes and besides blade runner is so old and 
+          soooo slooooow nothing ever happens in it the kids are going to 
+          devolve back into their twitch devices if you try to achieve that
+          demographics       yes
+          and how       I want you to channel fish ok think about fish what
+          does a fish want to see ok      fish
+          yes now it's your job to entertain these fish a great big school
+          of fish      fish       yeah now your getting it I want you to keep
+          them from clicking anything on or flipping anything open or swiping
+          anything back to life for 75 minutes do you think you can do that
+          why not make it 80        ok now you're cannibalising consession
+          sales look I think you get the picture think fish how do I keep
+          a fish occupied for 75 minutes and how do I keep those fish from
+          realising that they just got robbed ok        fish       that's
+          right now go back and get me something that will conform to your
+          demographic        fish       you've got it I'm looking forward
+          to see what you come up with        give me a solid twitch design
+          with a Mesmer index of 6.68 or more and we will do beautiful things
+          together you and I       fish       right go get em see you next
+          Thursday        fish ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( good cops )
+          ( copyright kjell e godø )( 20140619 yyyymmdd )( 7:27 Seattle )
+          ( in every war you always have your allies but what do you do when 
+          all your allies turn out to be just good cops ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Lucy )
+          ( copyright kjell e godø )( 20140619 yyyymmdd )( 7:30 Seattle )
+          ( coincidence : 10% nonRandom : Lucy = elL you see why = Kjell u c y
+          = ell you see! why? ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( black hawk down )
+          ( copyright kjell e godø )( 20140619 yyyymmdd )( 18:34 Seattle )( 
+
+          ( [_x_]::-- 12:04 ( 160 ) Watch Movie iTunes ( black hawk down ) , 
+          Stop ( fail ) , Watch Movie iTunes ( black hawk down ( this movie 
+          always makes me cry but why is it because people die I don't think 
+          so I've seen a lot of simulated people die but I never cry I think 
+          I cry because it's a masterpiece when the massive rotor noise goes 
+          silent drowned by the rising din of beat and because beat silence 
+          I feel for these guys spending every moment saving each other to 
+          snatch each other I cry because of what's his names goodness idealist 
+          bucking that themselves always watching each other but he's one of 
+          them he is their point he salts and the deaf guy reminds me of my I 
+          cry because the delta have thrown off the limits of restriction red 
+          think group and just do what works no matter how it spins they care 
+          less  they just want to get it done and not die to the highest get 
+          it done and to the highest not die I cry when I see them use two 
+          shots to disable an ak unlimited bezerk at them not spinning anyone 
+          to some degree and how that stabs and jives the always watching 
+          each other group the bird herders the elites and I wonder what 
+          would happen if the elites did the same and I wonder what would it 
+          take to make that happen but most of all I think I cry this time 
+          because this time I know a simple nothing that they didn't have to 
+          die that would have saved them all with nothing nothing like shifting 
+          your weight from one foot to the other it's nothing but it's hidden 
+          behind the always watching red tape except in the movie everyone 
+          dies everyone has to die in the movie there's no getting around 
+          it if they live they vanish it's action I cry because that naïveté 
+          of not knowing is dead I cry when I see what has replaced it
+                 if they had kept the black hawks moving at speeds high 
+          enough to foil the RPGs but low enough to maintain cover in tight
+          circular patterns maybe even just spinning in place at times , 
+          the soldiers should have headphones so they can hear each other 
+          but not the bullets or explosions not so they go deaf from it , 
+          they should have wrist phones with maps in them or just detailed 
+          maps stuck to their forearms with a small compass thing that shows 
+          which way they are pointed in the map embedded and a small 
+          magnifying glass around their necks or stuck to the map , GPS , 
+          the birds should just shoot anything on the roof tops , where was 
+          the air cover , they owned the roof tops , who's idea was that , 
+          one bird on one side firing towards the breach and one bird on 
+          the other also firing horizontal like towards the center thus 
+          covering the convoy , fuck the infra red beacon just hit anything 
+          on the rooves , the air was highly blocked up by red tape and 
+          efeminate place regarding group think that just wants to maximise
+          global torture anyway , they needed a lot freer air cover not so 
+          blocked up , and red taped , what if they got up off the ground 
+          and took one of the roof tops? they could get trapped up there , 
+          just go up to clear it and then back down and cover the stairs , 
+          or remove the f mgroup think from the air cover , could they use 
+          some kind of light armor on arms and legs that would lessen wounds 
+          but not stop them that could also breath like a mesh? Kevlar? or 
+          strips of Kevlar that would take out half the bullets but not 
+          killing in heat , what about the old Japanese samari armor but 
+          with Kevlar , but Japan is cold , what about radio controlled 
+          bear sized tanks?  with flat bed trailers the soldiers could ride 
+          on and when they take fire they jump off and take cover and use 
+          the tank to blast the roof tops which could also detach from the 
+          flat beds via radio signal , what about small hand held drones 
+          to fly up and give them a birds eye view , or maybe the mini 
+          tank could have a small armed air plane that straifs the roof 
+          tops , lay down your arms be not mixed be pure stop relying on 
+          s the sword the sword you wield will kill you in the end , go 
+          into whatever slavery and be free , but probably just keeping 
+          the birds moving spinning jiving would have solved the whole 
+          thing but people don't want to look too hard for what nothing 
+          could be done , why do it , also they should have had mass 
+          continuous grenade launchers in the humvees in addition to 
+          those near useless 50s , that way they could lob the roof tops 
+          if the launchers could be trimmed right , keeping them black 
+          hawks circling at high rates of turn and firing down from the 
+          steep banking would have solved the whole thing , that's what 
+          I would have done , if I had been the general and if I had 
+          known , and it hadn't been a Thursday , if you could do just 
+          one thing that would be it , but don't bother me , and , it's 
+          good enough , and , I don't care if they die , where would be 
+          bravery if none of them died my lizard thinks when I can't see
+          it , that's not my problem , and , I'm blocked , and , I can't
+          do it , and , I'm too tired , and , death is better than
+          inconvenience , and , death is better than speaking against
+          the crowd ) , Baraka ( briefly ) ) )<---[ I want to make the
+          crowd speak against itself cutting all all the while thinking
+          they are being even more crowd love limits ]
+
+          ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( what is God's 
+          favourite music )( copyright kjell e godø )( 20140620 yyyymmdd )
+          ( 20:20 Seattle )( radio lab what is YHWH favourite music well 
+          you know that static between the radio stations well that's it 
+          infinite complex infinite time scales infinite self similar an 
+          infintity of infinite motzarts at each infinitesimal point in 
+          time as far down as you want to go people hate it I want to say 
+          maybe that is part of its apeal but that would be so human of me ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( get the blink 
+          up you hazard )( copyright kjell e godø )( 20140624 yyyymmdd )
+          ( 6:06 Seattle )( I would like to create a different way of cussing 
+          that sounds whimsical and foreign and non threatening and comical 
+          that occasionally dips into the sinister but not all the time.  
+          Like dr smith in lost in space ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: 
+          ( I would like to write a sex scene )( copyright kjell e godø )
+          ( 20140624 yyyymmdd )( 6:11 Seattle )( I would like to make a
+          sex scene now.  why not.  it just popped into my head.  I want
+          to redo it 7 times.  the same thing 7 times.  but not now.
+
+          An arranged marriage.  How is it done.  She has no mother and 
+          father?  He made those too?  He didn't bother.  He made those 
+          later.  No they just tell him she comes from one of the other 
+          whatchamacallits around.  Her parents both died in a fermentation 
+          accident.  But why him.  Well she needs a husband and all the 
+          others just happen to be taken this month so why not.  - You need
+          to be settled down.  And looks to she's looks to she might be just
+          the girl to do it. -  In answer to you query <a pause> <reading>
+          <waiting> -- mm I didn't say anything -- - in answer to your query 
+          you're too polite to ask - and I really shouldn't answer you 
+          but I will - <sly glint> - yes - you're thinking - God help you 
+          - what is her great fault - that we are saddling her with you 
+          - on such short notice - you will rue that thought - her greatest
+          fault - it's strange but true - is that she's too perfect.  And
+          because of this no one will touch her with a tent pole and she 
+          sits alone every night sewing things for people.  Who just can't 
+          stand to be around her.  They don't want to it's not her fault 
+          but she just drives everyone crazy.  And though they try to stay.
+          Though they try to talk to her.  To be with her.  They just have
+          to turn away before too long.  And flee.  Making apologies that
+          drift back up to her as they quickly take their leave feigning
+          bladder problems.
+
+          the thought of her being shunned in such a way draws up a involuntary like in him
+          he knows the feeling well he feels his mouth his jaw solidifying
+          he hears his sound slowing down to the point of pain
+          he feels his brain turning to mud and then wild rays bursting out of the soup
+          that he watches never knowing what calamity they will soon return
+          on peoples faces
+          bracing
+
+          the elder is reading
+          he sees it
+          and he knows 
+          where it comes from
+          but he can't really feel it
+          he doesn't know
+          but he puts his hand up on Kiev's shoulder
+          ( and whispers )<---[ a breach ]
+          another sly glint
+          and Kiev doesn't know if he likes all these sly glints he is getting
+          his stomach starts to turn
+          like finding out your father was a chicken farmer who took to raising men and then slaughtering them
+          just like chickens in huge well designed and constructed structural cement pires
+          the elder read this too
+          .
+          - and I've got a little surprise - for you - Kiev - I think you'll like it -
+          -- <oh no not another> -- 
+          - don't worry - it's not a trick - <thinking better of it> - <a pause> - <reconnecting> - 
+          <squeezing his shoulder> 
+          - you will like it - <another sly glint>
+          -- <Kiev could see he was trying not to glint now but it wasn't working> --
+          -- <Kiev could see that he had just realised that any further talk would just dig him in deeper> --
+          -- <so he said> --
+          - you're going to like it - a lot - <a distant look slightly past him> 
+          - <akin to guilt but with mitigations muddying the water> -
+          - a lot - <he gives Kiev's shoulder a little push> <it's time to go>
+          -- Thank you sir -- - see you Sunday Kiev - -- Yes --
+          -- <Kiev walks out the door wondering what just happened> --
+          - <another sly glint but far away also wondering> -
+
+
+          The first he sees her she's in white.  It's too austentatious.  
+          But the dress is part of her.  It grew out of her.  The plain 
+          one she was wearing swelled up and burst when she stood on the 
+          aisle and took the elder's arm and out swung all of this.  A gasp. 
+          A torrent of gasps no one heard.  As they all crane.  and then a 
+          mass memory cutting it short.  One of the elders shoots black at 
+          the other one on her arm with fire in his eyes bulging blood red 
+          vessels shot threw with momentary malice red white and blue hot.  
+          The other one shoots back bloody murder until he remembers looks 
+          at her and here and there at her and then back to him and shrugs.  
+          Who knows.  God damned software.  
+          .
+          her waiste tight white iron belt
+          petite
+          tiny ribs rays lines shooting up hip
+          bouquet
+          the fabric
+          cyrus lace between tight hip that loose cloud whisps on their way up
+          sucking all the clear of this impossible green and bright blue day 
+          compacting into the foundations arrising now to support
+          flare
+          down
+          sweeping out
+          not too wide not too narrow a fiery furnace youth she
+          perfect
+          perfects sloping out and down in back her wide turning narrows 
+          as she passes but upheld hitting the peeks of clovage
+          higher than he could know    from his vantage
+          two round planets press
+          sub white echo existence
+          in her wake
+
+          foundation stones
+          waisting 
+
+          veiled yes
+          a blush
+          downed in white
+          goose h
+
+          her
+          twins newclear the sun brief peeks now and now not 
+          but now echo riple p through the blue veils of clear 
+          moment too close t ground rubble's bounce for any whitness 
+          in him oh survive i capped i captured here wave on their way 
+          momentary capture capturing brief f fstop focal here but now on their way 
+
+          on their way up on their way out on their way at
+          press          then the blast wave hits       knocking all hats akilter     or was that just the wind
+          white whithering V sheilding all the world from her naked 
+          fusing core but it's a lie it's not protecting him at all but devastating more
+          elyptic curves sheets her fiery red yellow youth her topmost beguiling plush of space filling surface her 
+          she's too analog to e er understand to ever know she goes down forever with no bottom in sight
+          coiling into her divide crushing into her between bouncing back another round to equal swell
+          uncountable any all can always can has can one more unknown complex fill
+          a vortex her he cant escape nev r
+          once he i n alls in to her own too     much
+          and she still as want drops in the key with a unknowing look
+          disappearing vanishing between her
+          finger pressed down
+          out
+          of 
+          sight
+          where 
+          he must
+          search for it
+
+          he touches it
+          with her finger
+          so little
+          pushing out in filling
+          chaos lit mad driving all a round
+          so high stretch
+          she glares at him
+          bemused disappointed 
+          at the point of impact
+          with no pact
+          untouched
+          he's beginning to shake
+          she sees it and it hurts
+
+          she removes her finger
+
+          tears well up from a lake
+          she's held so long forever new store
+          she starts to pull away
+          this shocks him
+          bad         wakes him up
+          he feels the pick and he knows he has to act
+          he raises his hand quick and holds it up flat
+          and she stops
+
+          She looks up reading
+          tightly locked
+          he goes blind again
+          there seems to be some kind of a dim white halo radiating out from her eyes
+          so large
+          so many levels
+          so deep
+
+          there he is again      he reads
+
+          his mind has just gone blank
+
+          she sees it and her eyes get pulled up stantaineous sucked up in the middle like at Dresden 
+          instant and gone
+          but his attempt to stop her gives her a shot of spite a call to arms against her long plight
+          her eyes flash hot
+          her lips stiffen spout
+          and she grabs his finger lifts it and presses it home into her balanced and lets go
+          her eyes widen a little called back to life he watches them dance away from him and 
+          saying to herself he reads this is nothing like my touch this is new surprising me 
+          what are you doing to me Kiev she looks
+          but waves stop her waves rushing over her from out of the single point of contact at the tip
+          why is this different than when I brush against a cabinet door on my way 
+          but it is
+          oh God it is
+          her eyes roll up a little gliding smooth instant gone
+          and drift back down
+          and fight to refocus
+          their spell broken he dispanics back and reads
+          is he taking something from me    he shouldn't    oh wait
+          she looks down
+          and sees her own magnificence
+          oft hated cataclysmic rolling summer hills
+          and knows what she is going to do to him
+          and reels
+
+          he can't move
+          ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( how I feel it )
+          ( copyright kjell e godø )( 20140624 yyyymmdd )( 6:11 Seattle )
+          ( I can't really listen to anyone else's opinion of what I write.  I 
+          want to listen and I may change things like if I had an editor to target 
+          me to an audience.  but I can't really listen.  just like I can't really 
+          listen to any suggestions of not being a christian.  the core is till 
+          death do us part.  so when I write certain things I really like it like 
+          getting high.  it sings to me.  I probably am high.  it's called 
+          hypergraphia.  so I think it's like the best thing I have ever heard.  
+          And then I turn away from it and that high feeling quickly fades and 
+          when I remember it as this is happening it doesn't seem so good anymore.  
+          And as I keep coming down it seems worse and worse.  Until it seems bad.  
+          And that's why I never look at it again.  Because I'm afraid that I will 
+          not see it again like I saw it when I was high off of it.  I am afraid 
+          that it will not generate that high if I just read it.  So I am a sucker 
+          for hints that I might get that I can confuse into something linking to 
+          me.  Hints that get me thinking people think it's good.  Really good.  
+          immediately I glom onto that idea because then I can just take their 
+          word for it and live in this fantasy where I don't have to read it again 
+          and find out for myself.  I imagine I will be sorry if I don't like it
+          anymore.  But who cares.  Who cares.  I should see for myself if I 
+          still like it or not.  If I don't.  Then I should probably know that.  
+          And stop hiding from it.  So I have this suspicion that I actually 
+          hate everything that I write.  And if I do then I should find it out.  
+          I need to stop taking hints that may have nothing to do with reality 
+          and are just serving to trip me up.  Letting me believe that I would 
+          like what I write but absolving me of actually finding out.  So I 
+          wind up living in this counter productive fantasy. ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+
+
+           )<---[ storyIdeas ]
+        ( plot--
+             )
+    )<---[ script jerusalem 1 ]
+
 )<---[ scripts ]
-
