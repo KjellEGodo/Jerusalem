@@ -309,6 +309,130 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
     )<---[ characters ]
 
     ( storyIdeas-- 
+
+
+
+
+
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( glory )( copyright kjell e godø )
+          ( 20140626 yyyymmdd )( 17:09 Seattle )( 
+          ( [_x_]::-- 14:29 ( 103 ) Visit web ( search for Gaga tickets ( abort ) look 
+          around the gaga taylor swift photos ( is this taylor swift guy an actor  he 
+          looks pretty much exactly like what I was envisioning for the truth futures 
+          guy who would be directed by glory's fans via TF as to what he should do all 
+          the time to keep her happy  does glory have fans  ok so glory is always going 
+          to be dominant over this swift guy but that's ok because she's Jewish right  
+          Italian Jewish what's the difference  she wants to be dominant over her man  
+          so that will not freak her out like it would a civilian woman  and it links 
+          to the Jerusalem too because glory should be Jewish Italian whatever so it 
+          will be even better if the actual glory fans could actually tell this swift 
+          guy what to do for 30 days so if life is modelling art like this it will 
+          probably have a synergistic effect and once it gets going perhaps the fans 
+          can keep it going to make sure this guy doesn't start screwing up or if he 
+          does it can be corrected and bla bla bla bla bla bla like they could figure 
+          out what he should do once a week or something what romantic thing he should 
+          do for her and them because left to our own devices we tend to get lazy and 
+          take her for granted and that is not a good thing so this might be a way for 
+          him to escape that fate so I would like to hire him he's got the part if he 
+          wants it he doesn't even have to study up for it he just has to show up 
+          essentially I guess that goes for glory too because she is glory so she has 
+          been studying up for it essentially all her life she's studying up for it 
+          right now enough ok so I can't wait for a lot of sequels everybody is going 
+          to be too old so the first episode has to be killer uz and then all the other 
+          episodes have to be done all at once in parallel Goddamit enough or what if 
+          the fans actually take the scenario from the TF Jerusalem script cloud and 
+          actually write the part of this Swift character via TF and be a part of 
+          making it enough ok so I want 75% of the Jerusalem cloud to be a noQuests 
+          zone Characters only like the Swift character enough so if you want to stick 
+          your movie into the Jerusalem universe then I want you but you are going 
+          to have to put your script up on TF and let the market perfect it stop a 
+          private market of your peers perhaps zap ok so if people wander into one 
+          of the episodes and the guy comes on the screen during the ads telling which 
+          episode comes prior to this one and they decide they want to start at the 
+          beginning somewhat self contained episodes are needed or not then we have 
+          three attendants there with 3 handheld devices don't trip on any organisms 
+          and we give the customer a thumb drive that has the episode sequence on it 
+          and allows them to either see a different movie now and see one of the first 
+          episodes later or see one of the first episodes now in a different plex 
+          in this theater plex the ticket sellers could help with this or have an 
+          attendant working the line a salesman he she is to speed it up or according 
+          to the drive or the money can be put onto the drive bitcoin and they can 
+          take it to one of the first episodes and see them all in sequence and they 
+          can stick or connect the thumb drive into their computer or tablet or phone 
+          and it will tell them what to do and buy the tickets in one transaction if 
+          they want a bitcoin a tiny custom thumb drive wifi mass produced cheap key 
+          chain device we give to everyone the thumb drive can have various ways of 
+          making money for the Jerusalem cloud in it including enticing them to one 
+          click joining the TF as a script trader bad idea or whatever they want 
+          the drive will also be a secure password keeper and people who have it 
+          will no longer have to enter any more Goddam passwords and not for TF 
+          either which will entice them to keep it on their key chain will people 
+          who had a hand in making a movie want to see it I don't know ok so entice 
+          them to be something other than a script trader make it easy for companies 
+          to join this bitcoin no password no username group just like falling off 
+          a log near zero cost of entry no no no we don't want to follow you Bluto 
+          we're too scared and then we can offer any business a place on the thumb 
+          drive for no password no username access to the bitcoin users who don't 
+          even know they own bitcoin a bitcoin futures market is needed to reduce 
+          volatility obviously that jap was an idiot when it comes to trading just 
+          like the energy idiots Enron was fleecing on that spot market jeez us h 
+          kryst please stop KABOOM ) ) , Karen called for the weekly coaching call 
+          & Read e-mail from Eli ( the game is on ) , Write self This todo bullet )<---[ meta note ]
+          ) )
+
+
+
+( META-- NOTE      The GitHub web text editor's iPad scrolling ability is too slow so I will no longer add new story ideas to the bottom of self This file below.  I will instead add them to the top of self This file above.  So the story ideas below have decreasing age as you go down.  But above here the story ideas will have decreasing age as you go up from here.  I hope that's clear. )
+
+
+
+
+
       ( AStoryIdea-named:copyrightBy:idea: ( if autistic amish )( copyright kjell e godø )( what if an amish
         kid was autistic? Would that mean immediate excommunication and shunning? ) )
       ( AStoryIdea-named:copyrightBy:idea: ( escape )( copyright kjell e godø )( There is a forest barrier around 
@@ -2874,52 +2998,7 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           independent
           ok I forget
           times up ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+
 
 
            )<---[ storyIdeas ]
