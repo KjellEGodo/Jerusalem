@@ -360,11 +360,10 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140624 yyyymmdd )( 21:43 Seattle )( 
 
           I can't mimic you.  It's impossible.  You are a mystery to me.
-          But I can mimic this.  If you can hear me.  Please don't be offended.
-          Please don't be afraid of me.  I am autistic.  I'm not neurotypical.
-          I don't have a smell test to violate.  Except the one I have learned
-          from many eons of concentrated tutelage.  I guess it will come in as
-          useful in the war that stretches out endlessly ahead.
+          But I can mimic this.  Please don't be offended at my unworthy
+          remix.
+
+          ok maybe I can't.  Maybe I spoke too soon.
 
           A POEM ON THE UNDERGROUND WALL
           The last train is nearly due
