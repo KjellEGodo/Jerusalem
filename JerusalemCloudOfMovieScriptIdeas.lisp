@@ -356,8 +356,53 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( rayon )( copyright kjell e godø )
+          ( 20140624 yyyymmdd )( 21:43 Seattle )( 
+
+          I can't mimic you.  It's impossible.  You are a mystery to me.
+          But I can mimic this.  If you can hear me.  Please don't be offended.
+          Please don't be afraid of me.  I am autistic.  I'm not neurotypical.
+          I don't have a smell test to violate.  Except the one I have learned
+          from many eons of concentrated tutelage.  I guess it will come in as
+          useful in the war that stretches out endlessly ahead.
+
+          A POEM ON THE UNDERGROUND WALL
+          The last train is nearly due
+          The underground is closing soon
+          And in the dark deserted station
+          Restless in anticipation
+          A man waits in the shadows
+
+          His restless eyes leap and scratch
+          At all that they can touch or catch
+          And hidden deep within his pocket
+          Safe within his silent socket
+          He holds a colored crayon
+
+          Now from the tunnel’s stony womb
+          The carriage rides to meet the groom
+          And opens wide and welcome doors
+          But he hesitates, then withdraws
+          Deeper in the shadows
+
+          And the train is gone suddenly
+          On wheels clicking silently
+          Like a gently tapping litany
+          And he holds his crayon rosary
+          Tighter in his hand
+
+          Now from his pocket quick he flashes
+          The crayon on the wall he slashes
+          Deep upon the advertising
+          A single-worded poem comprised
+          Of four letters
+
+          And his heart is laughing, screaming, pounding
+          The poem across the tracks rebounding
+          Shadowed by the exit light
+          His legs take their ascending flight
+          To seek the breast of darkness and be suckled by the night )
+          ) )
 
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( glory )( copyright kjell e godø )
           ( 20140626 yyyymmdd )( 17:09 Seattle )( 
