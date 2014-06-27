@@ -452,11 +452,13 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           A single-worded poem comprised
           Of four letters
 
-          And his heart is laughing, screaming, pounding
+          And his heart is laughing, screaming, pounding <---[ ? ]
           The poem across the tracks rebounding
           Shadowed by the exit light
           His legs take their ascending flight
-          To seek the breast of darkness and be suckled by the night )
+          To seek the breast of darkness and be suckled by the night 
+
+          
           ) )
 
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( glory )( copyright kjell e godø )
