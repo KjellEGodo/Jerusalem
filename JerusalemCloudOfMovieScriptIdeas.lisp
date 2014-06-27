@@ -354,16 +354,72 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( a speech )( copyright kjell e godø )
+          ( 20140626 yyyymmdd )( 8:40 Seattle )( 
+          The neurotypicals seem to live life standing on a razor's edge, bal anced on steel grooves
+          in the souls of their shoes ( flattery ).  secure in the faith that they are able and
+          the chance of wobbling is low.  But it's got to be an effort.  All day every day.
+          it's got to be a drag.  Why celebrate the drag.
+          and if anyone does wobble and gets sliced in half well that's just capital.  And push
+          those without bal ance up on to razors so they can be sliced and diced over and over.
+          no one is supposed to touch the veneer of lies that covers your surface.  that would
+          be a violation of the code designed to get the veneer of lies to grow and grow.  until
+          the milk of kindness supposedly safe inside is completely sour.  all the books all the
+          movies all the stories are about this crystal growth this veneer of glass spikes around each character
+          about finding the sour milk within without violating any of the rules about not
+          finding out.  About not looking.  So the patterns of lies give faint clues about what
+          lies within.  But not enough people were getting sliced so the definitions of the words
+          were changed and the meaning of a smile was changed.  so that all those who didn't 
+          know the new definitions could be knocked off their razors and die.  until the milk
+          within just dried out and blew away.  but hey.  we get to kill people without risk.
+          no one can get through the wall.  maybe no one needs to get through the wall.  you
+          are in there with yourself.
+
+          but it's all probably good to know.  if you are going to have to deal with a lot of
+          neurotypicals it's probably good to know.  you never would have made it without it.
+          so you should be glad.  you should feel lucky.  you had such conscientious trainers.
+          they knew that their kind were going to eat you alive.  so they trained you.  nice.
+          but what am I going to do with all this sour milk.
+
+          I want to compliment you in a way so you don't know if I like you or I hate you.
+          I won't clap and you will never know.  wow.  now that's sour.
+
+          like a Ponzi scheme it all acrues to the very first liar.  the one who started the
+          ball rolling.  but what I want to know is what about the rebels.  the groups
+          inside who are making their own redefinitions of the redefinitions.  what about
+          them. ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( rayon )( copyright kjell e godø )
           ( 20140624 yyyymmdd )( 21:43 Seattle )( 
 
-          I can't mimic you.  It's impossible.  You are a mystery to me.
+          I can't mimic you.  It's impossible.  You are a mystery to me.  So perfect.
           But I can mimic this.  Please don't be offended at my unworthy
           remix.
 
-          ok maybe I can't.  Maybe I spoke too soon.
+          ok maybe I can't.  Maybe I spoke too soon.  Maybe I don't have the time.
+
+          so what do I do with this now.  I'm stuck.  Maybe I shouldn't have the time.
+
+          I want to flatter you.  But who knows maybe I will just offend you.
+
+          Probably you will never know I said any of this.
+
+          I'm just a fan.  so is it an olive branch or just another offer of peace.
+
+          Is it an offer of peace or just another offer of love.
+
+          Is it an offer of love or just another veiled hate.
+
+          it seems designed so you will never know.
+
+          but it will do no good
+
+          did you see that?  just more flattery.  a link to lazaretto.
+
+          I guess I will wait until I see what worthless attempt of nothing I will make.
+
+          If ever.
+
+          In this fantasy of being able.
 
           A POEM ON THE UNDERGROUND WALL
           The last train is nearly due
