@@ -348,12 +348,62 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( reality distortion production )
+          ( copyright kjell e godø )( 20140628 yyyymmdd )( 9:04 Seattle )( so I don't want just
+          the insects in this dream of able.  I want the f troop in here too.  how can I shoe horn them
+          in here.  I want them to fight.  so the Jerusalem does not allow evil inside.  But I'm saying
+          that they have to be caught.  She lets them in.  But they have to be caught.  And thrown back
+          out again.  immigration.  Also I want
+          each episode to have two production entities in it one good and the other evil.  So the
+          good production entity has control over the good characters and the evil production entity
+          has control over the evil characters and they can fight over the middle characters.  so anything
+          is fair game.  if the faithTroop people want to invoke Jesus go ahead.  if the insects want to
+          invoke satan go ahead.  what about the Islamists.  what about the Buddhists.  ok let's not go
+          too far unless we know we will be glad we did.  except you can't know.  enough.  ok this chaos
+          will be orcastrated by the TF network.  the fans will be able to get in there and make their
+          notes be heard.  Ok so the higher level film makers will have enough F$ to veto anything too
+          stupid that appeals only to the markets lowest denominator.  The film makers will be able to
+          trade back in time.  they may be the only ones to have that ability.  So the christians and
+          the sathtanists and the film makers and the key grips can duke it out on the TF network and 
+          May the best ideas win.  But i ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Thammarat rap )( copyright kjell e godø )
+          ( 20140628 yyyymmdd )( 8:13 Seattle )( I wish some one like Jack would team up 
+          with a rap singer like todrick I may be mistaken a rap singer who can sing notes really fast.
+          the fastest singer out there.  and he follows or harmonises Jack.  vocal songs are too simple.
+          everything is dumbed down to accommodate the singer.  I don't like it.  But Jack White.  I
+          love the clarity.  I like Lazaretto.  It stings.  Get over it.  I don't like it because it stings.
+          but.  Someone like Steve Vai or Joe Satriani.  If anyone can keep up with Yngwie that will be
+          a miracle.  But he's just crazy enough to do it.  Vivaldi hard rock guitar.  I love it.  I hate
+          it.  I need it. ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( sleigh ride )( copyright kjell e godø )
+          ( 20140628 yyyymmdd )( 8:12 Seattle )( I want a platform flat like a Shakespearean stage 
+          with an organic shape like the shoreline of an island.  there are millions of them.  they are
+          flat on top and there is a lot of machinery underneath.  there are 6 or 7 characters on top.
+          and they talk.  the machinery underneath listens to them and puts up tendrils to emphasise what
+          they are saying.  but these are restricted from doing a lot of supernatural magic.  they are
+          more like rube Goldberg contraptions and they keep making mistakes or losing pieces that rattle
+          around on the stage.  They feel like the chink in the wall.  Also the Jerusalem all around them
+          is listening.  And sending out messages that the audience sees or maybe but the characters ignore
+          seem to ignore.  The Jerusalem doesn't do it herself.  She has minions.  Voyueristic minions.
+          That scramble around in the walls far away making up signs and furiously running around behind
+          the scenes.  They are listening and disseminating and making huge efforts that just get ignored.
+          The Jerusalem is watching them all.  She puts out a message sometimes.  It looks like nothing
+          but it's the key to all.  So like a 3 episode sequence or something.  so these platforms float
+          around and the characters speak various things that are about then but are about now.  you figure
+          it out.  so these platforms occasionally touch.  And a new character can come on and another
+          or more can leave.  once all but one leaves and carrie f goes on herself.  so what do they
+          talk about.  Various stories and things like Georgia tall tales.  they know a lot of history.
+          the history is all still there.  that kid searching so hard.  fleeting.  ok enough.  So they
+          can go back to now or earlier or later to some made up future.  they can do new Shakespeare
+          like from that program. etc.  musical numbers.  guitar rap.  there is also a Baraka aspect 
+          to it.  Let the background and
+          architecture artists go Berzerk.  Absolutely ape shit bonkers.  I want a quadzillion things
+          nobody has ever seen before.  The painters the renderers.  The Jerusalem is always changing
+          and she can project sculptures or video or any new thing someone can come up with.  I want
+          her to be the key.  Ok Jerusalem can take on different guises.  There can be multiple
+          different glorys.  some with wings.  yes.  small ones.  sometimes glory can come as multiple
+          different glorys and then she can argue with herself. why not.  flattery?  I'm choosing
+          flattery.  I'll make it.  kid.  oh god ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( a speech )( copyright kjell e godø )
           ( 20140626 yyyymmdd )( 8:40 Seattle )( 
           The neurotypicals seem to live life standing on a razor's edge, bal anced on steel grooves
