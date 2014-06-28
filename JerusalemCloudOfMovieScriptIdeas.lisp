@@ -403,7 +403,8 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           her to be the key.  Ok Jerusalem can take on different guises.  There can be multiple
           different glorys.  some with wings.  yes.  small ones.  sometimes glory can come as multiple
           different glorys and then she can argue with herself. why not.  flattery?  I'm choosing
-          flattery.  I'll make it.  kid.  oh god ) )
+          flattery.  I'll make it.  kid.  oh god         I want this Mahler guy to be on the platform.
+          goddamit ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( a speech )( copyright kjell e godø )
           ( 20140626 yyyymmdd )( 8:40 Seattle )( 
           The neurotypicals seem to live life standing on a razor's edge, bal anced on steel grooves
