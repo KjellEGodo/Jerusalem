@@ -346,8 +346,164 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( the mouthy one )( copyright kjell e godø )
+          ( 20140629 yyyymmdd )( 8:42 Seattle )( 
+          ( [_x_]::-- 3:08 (  ) 
+          It was a slow day
+          and the sun was beating
+          on the soldiers 
+          by the side of the road
+          there was a bright light
+          a shattering of shop windows
+          the bomb in the baby
+          carriage was wired to 
+          the radio
+
+          can't touch this I want to
+          touch this but it's so perfect
+          no word can add no word
+          can remove no word can
+          extend I can't continue it
+          it's wound wrapped tight
+          into a DNA of beats and
+          music I can't know
+          it was a slow day
+          it was a fast day
+          so perfect I like the shattering
+          of shop windows all the bees
+          the rubber baby buggy bumpers
+          little red scooter pony
+          tin soldiers by the
+          side of the road
+          bomb in the bomb in the
+          the last time out pearl jam
+          glove compartment
+          I'm hated now I'm hated
+          I'm Icarus but I never got
+          off the ground wired to
+          the radio rewrite rewrite
+          rewrite   please write my
+          red scooter pony perfect
+          please write me up
+          got to go now be back soon
+          can I do what ever I want
+          in my own room  Christopher
+          Walken is coming soon
+          don't insult my intelligence yeah
+          I want people to do this to my
+          stuff    so that's why
+          maybe it's impossible to
+          extend anyone else  you can't
+          mimic them especially not this
+          perfect baby carriage radio song hit
+          but maybe you can take the idea
+          or the fragments and make
+          something     ok it's not the same
+          it wouldn't make a dime it would
+          cost a dime     but I want people
+          to do it to me     just change me
+          perfect me     fork me   push me
+          got to go now     I've got three
+          women to
+          kid: hey mister
+          : ok kid prepair to buzz off
+          kid: hey mister did you just say you love me
+          : no
+          kid: well which love did you mean
+          : prepair to buzz off
+          kid: I know I know I just violated rule #136
+          : listen kid I don't know you stop touching me
+          kid: hey mister my hands are in my pockets what are you talking about
+          : where are your parents they must be around here somewhere
+          kid: don't bother
+          kid: you're my father and mother
+          : ok stop kidding     don't kid about something like that    you know rule #462826482XB71
+          kid: I only got one rule       but I forgot what it was
+          : listen kid I got 3 women       I got to go      I don't know you
+          : I have 5 people in my family and I have 5 friends and you are not any of them
+          : now where are your parents
+          kid: I got none
+          : what
+          kid: I got none you're it
+          : rule #462826482XB71 come on tell me where they are
+          kid: I got none I came from a red blood corps suckle
+          : corpuscle
+          kid: ha you got it wrong too
+          : comon kid prepair to buzz off I got to go
+          kid: my mom is glory      the mouthy one
+          kid: if you really want to know
+          : kid
+          : why didn't you tell me
+          : kid: rule #1
+          kid: I just wanted you to get the look
+          : ok kid this is it buzz
+          kid: ok bzzt ( meany )
+
+
+          these are the days of miracle
+          and wonder this is a long
+          distance call
+          the way the camera follows us
+          in Slomo the way we look
+          to us all
+          the way we look to a distant 
+          constellation that's dying
+          in a corner of the sky
+          these are the days of miracle
+          and wonder and don't
+          cry baby don't cry don't cry
+
+          it was a dry wind and it swept
+          across the desert as it
+          curled into the circle of blue
+          and the dead sand falling
+          on the children the mothers
+          and the fathers and the 
+          automatic earth
+
+          these are the days of miracle
+          and wonder this is a long
+          distance call
+          the way the camera follows us
+          in Slomo the way we look
+          to us all woa yeah
+          the way we look to a distant 
+          constellation that's dying
+          in a corner of the sky
+          these are the days of miracle
+          and wonder and don't
+          cry baby don't cry don't cry
+
+          it's a turn around jump shot
+          it's everybody jump start
+          every generation throws a
+          hero up the pop charts
+          medicine is magical
+          and magical is art think
+          of the boy in the bubble and
+          the baby with the babbling
+          heart
+          now I believe these are the 
+          days of lasers in the jungle
+          masers in the jungle somewhere
+          staccato signals of constant information
+          a loose affiliation of millionaires and
+          billionaires and baby
+
+          these are the days of miracle
+          and wonder this is a long
+          distance call
+          the way the camera follows us
+          in Slomo the way we look
+          to us all woa yeah
+          the way we look to a distant 
+          constellation that's dying
+          in a corner of the sky
+          these are the days of miracle
+          and wonder and don't
+          cry baby don't cry don't cry
+          don't cry )
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( reality distortion production )
           ( copyright kjell e godø )( 20140628 yyyymmdd )( 9:04 Seattle )( so I don't want just
           the insects in this dream of able.  I want the f troop in here too.  how can I shoe horn them
