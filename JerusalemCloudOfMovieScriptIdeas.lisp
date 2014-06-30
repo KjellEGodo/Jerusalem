@@ -344,8 +344,75 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( 3 glory arguing first attempt )
+          ( copyright kjell e godø )( 20140630 yyyymmdd )( 13:05 Seattle )( 
+          glory3: oh no not this again why do I always have to look like this
+          glory3: why
+          glory2: what are you talking about bitch
+          glory3: why do I always have to be ugly
+          glory3: there's nothing left to say that's it
+          glory3: I'm calling in a spade a spade
+          glory1: why are you ugly
+          glory2: because you are the most beautiful that's why bitch
+          glory2: now pipe down and help me figure out the Swift paradox
+          glory3: the most beautiful
+          glory2: yeah
+          glory2: girl if you were beautiful and beautiful at the same time
+          glory1: you would be totally and completely 
+          glory2: insufferable bitch
+          glory1: watch yourself
+          glory1: you know you always get all the best lines
+          glory2: yeah
+          glory2: so quitcherbitchin bitch
+          glory1: ok ok ok
+          glory3: and help me figure the Garrikon dilemma ok I got it
+          glory1: no
+          glory2: yeah you do that on your own time bitch
+          glory1: no
+          glory1: enough finito no 
+          glory1: don't even think about it
+          glory3: but
+          glory1: not another word silence
+          glory1: I want to hear a pin drop and I want to hear it now
+          glory2: yeah get over it bitch
+          glory3: au fuc
+          glory3: ok ok I'm fine ok ok proceed ok I'm fine
+          glory3: no really bad joke ok go
+          glory3: go
+          glory3: what do we have
+          glory2: you know the drill
+          glory2: Swift is sick and tired of being romantic and considerate and sexy and loving 
+          glory3: with great abs 
+          glory2: and fantastic 
+          glory3: and with great abs
+          glory2: watch yourself I will take you down right now
+          glory1: all the time
+          glory2: he wants to get lazy let himself go take glory for granted and start eyeing other girls
+          glory2: you know the drill
+          glory3: happens to me all the time
+          glory1: yeah
+          glory2: oh come on girl
+          glory3: yeah we'll figure him out
+          glory2: yeah common
+          glory13: zzzzzfffftttt <---[ 1 starts is overcome and 3 finishes     ? ]
+          glory2: bitch
+          glory1: yeah
+          glory3: buck up
+          glory2: yeah don't get bent over get bent even
+          glory3: snap
+          glory3: I have the solution
+          glory3: just keep changing
+          glory3: let him be with you 
+          glory3: and when he looks away
+          glory3: manifest as some sexy siren right in the cross hairs
+          glory3: and then just keep doing that
+          glory3: easy
+          glory2: who died and made you the Queen of Sheba
+          glory1: no multiple manifesting
+          glory2: yeah we do this one strictly old school
+          glory1: yeah
+tails from the edge
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( the mouthy one )( copyright kjell e godø )
           ( 20140629 yyyymmdd )( 8:42 Seattle )( 
           ( [_x_]::-- 3:08 (  ) 
