@@ -411,7 +411,32 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           glory1: no multiple manifesting
           glory2: yeah we do this one strictly old school
           glory1: yeah
-tails from the edge
+
+
+
+
+
+
+
+
+
+
+
+
+
+          glory1: I'm going to cut you off
+          glory1: for 31 days
+          glory1: I want you to know what you have in me
+          glory1: I want you to imagine every day what life will be like without me
+          glory1: at midnight on the 31st day I will open back up to you
+          glory1: if you walk back in here
+          glory1: I will be waiting
+          glory1:      missing you terribly
+          glory1: no   I'm supposed to be cold here
+          glory1: this is not going right
+          glory1: this is it
+          glory1: see you in 31 days
+trails from the edge
           ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( the mouthy one )( copyright kjell e godø )
           ( 20140629 yyyymmdd )( 8:42 Seattle )( 
