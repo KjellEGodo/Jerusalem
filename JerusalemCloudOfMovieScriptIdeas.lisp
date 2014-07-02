@@ -342,8 +342,13 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( promises promises )( copyright kjell e godø )
+          ( 20140702 yyyymmdd )( 13:23 )( 
+          
+          ( [_x_]::-- 7:04 ( 22 ) Take out the garbage , Idle , Drive to mom's via the lake 
+          ( Jerusalem dialog fragment : I promised that I would not commit suicide and I would 
+          not join and these are promises I intend to keep thank you for reminding me ) )
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( 3 glory arguing first attempt )
           ( copyright kjell e godø )( 20140630 yyyymmdd )( 13:05 Seattle )( 
           glory3: oh no not this again why do I always have to look like this
