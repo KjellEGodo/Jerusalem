@@ -340,8 +340,11 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( dialog fragment )( copyright kjell e godø )
+          ( 20140702 yyyymmdd )( 17:48 Seattle )( 
+
+          You are complacent because you know you are at a safe distance
+          But I do not know this ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( promises promises )( copyright kjell e godø )
           ( 20140702 yyyymmdd )( 13:23 )( 
           
