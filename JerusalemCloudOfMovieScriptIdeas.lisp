@@ -320,26 +320,149 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( American graffiti )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 11:13 Seattle )( 
+
+          I want an episode something like American Graffiti.  where most of the stories get going right
+          off the bat
+          but then proceed in parallel and then keep retouching each other
+           ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( enemies who are not really enemies )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 11:09 Seattle )( 
+
+          enemy is right there maybe going to do something while she is defenceless 
+          but the whole thing turns out to be just a lot of talk
+          the enemy was just looking bad but they weren't bad after all but were afraid not to look bad
+          a very British story idea I think        what if right as the evil character is about to win with
+          extreme prejudice he suddenly breaks down and he wasn't bad after all    would that cheese
+          enough people off to make that episode bomb?
+          his audience is just three guys in some control room
+          the whole thing was faked using money from spy insider trading
+          and then later on he finds out that the faking it was faked
+
+           ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Harley red scooter ideas )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 10:36 Seattle )( 
+
+          the the red scooter can spawn more wheels out the back but try not to make it look like
+          magic I don't want this transformers bit     I want little machines to come out and rebuild her
+          I want the magic to look as little like ball faced magic as possible    I don't know how
+          by not showing it?  just making the sounds?       ok so she 3D prints the new parts    the tires
+          are not rubber but steel like the lunar rover tires       maybe she melts down the dirt around
+          her and smelts it to make ceramic       what if she has supplies circling overhead that nobody
+          but Kiev and Aurora or just Kiev sees and just thinks they are birds but strange
+          I don't want this transformers magic       I want there to be a reality to it a comical anti logic
+          that's logical
+          sounds time consuming     what if the clock is ticking     what if the
+          enemy is right there maybe going to do something while she is defenceless 
+          but the whole thing turns out to be just a lot of talk
+          the enemy was just looking bad but they weren't bad after all but were afraid not to look bad
+          a very British story idea I think        what if right as the evil character is about to win with
+          extreme prejudice he suddenly breaks down and he wasn't bad after all    would that cheese
+          enough people off to make that episode bomb?
+          his audience is just three guys in some control room
+          the whole thing was faked using money from spy insider trading
+          and then later on he finds out that the faking it was faked
+          so she becomes like a scooter 
+          caravan and can take on more people     like a convoy of scooter Harley's      but scooters
+          but sometimes she starts sounding like a Harley and 
+          all these wicked pipes and multiple angle big chrome engines sticking out I want a design
+          effort on the order of 
+          the discovery interior in 2001 or andromeda strain or Sid Meade or even better than Sid
+          Meade  well ... a 
+          scooter that looks like a Harley or a Harley that looks like a scooter how can the magic be 
+          minimised like the eye blinks in 2001    and then the Harley engines turn into jet engines       
+          and then the jet engines into rocket engines   and then the rocket engines into nuclear 
+          engines and then the nuclear engines into some kind of alien hyper drive engines that have 
+          marbles in them      so when she takes off it totally rips the landscape to shreds and causes 
+          mass property damage the whole place just gets wrecked and this wreckage stays put it 
+          doesn't miraculously get cleaned up somehow     like on the starting line     so she is sitting 
+          there on the starting line and then she grows extra wheels out the back and the bystanders 
+          get on and then she grows Harley engines to intimidate the rivals and starts making a lot of 
+          noise and then the Harley engines turn into jet engines and start screaming so loud 
+          everybody goes deaf and they can't hear each other for several scenes following and have 
+          to use sign language for half an hour of screen time silent film the face       at first the people 
+          on her are happy because they think maybe they can actually win but then they start to get 
+          scared someone tries to get off but can't and the rival starts to be glad he she they are not 
+          going to win this thing after all
+
+          the little red scooter is TF
+
+           ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Kiev loses his pretty )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 10:25 Seattle )( 
+
+          What if Kiev at some episode loses his prettiness his youth his strength same brain no a
+          better brain       and his voice cracks     what will happen    and then he gets it back again
+          according to the standard formula someone has to die to get it back Allison? no and then
+          he is all angst about it        he loses his health      and then gets it back      what happens
+          it's not his decision he doesn't make it happen it just happens
+          but he gets it back and she is gone        survivors guilt
+           ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Allison Bond sue me hello )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 10:24 Seattle )( 
+          Alison Bond has a crush in Kiev but he doesn't know it and she strikes him once maybe she
+          strikes him several times but later on she can't compete with Aurora so she gives up miserable but 
+          then Aurora not knowing her sucks her into the group and she takes off       Aurora looks like a 
+          DeCarlo girl but in real life      we have to find or make someone who can pull this off       
+          an intelligent traffic stopper an autistic bombshell     can it even exist
+          I have seen one but too short to be Aurora and you can't tell 
+          these days what is photo and what is real      who cares
+           ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Stacey has been )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 10:18 Seattle )( 
+          Stacey jaxx only way out is to be a has been but what if they won't let him
+           ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( fragments )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 10:15 Seattle )( 
+
+          listen to singing while reading email I won't be able to hypergraphia => lazaretto
+          woody Mahler I need more wit
+          the three amigos = the 3 ( am I god? )s
+           ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( how can I get the poetry into the movie )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 10:07 Seattle )( 
+
+          hear thoughts what if we can hear everybody's thoughts all the time like in Anne Hall but with
+          voices instead of subtitles        what if they think poetry and speak pedantic or bland
+          chorus can there be a poetic chorus that just keeps going like cannery row but much more intense
+          what if the twittering in the beginning of the shining of following the car is actually poetic words
+          but you weren't to know if they were words or not yet so perfect I'm going to have to not be perfect
+ ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( dirty weather and worse company )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 10:02 Seattle )( 
+
+          the next time I need a bad headache and worse company
+          the next time I want a bad headache and worse reflux       a worse case of reflux      
+          a worse case of company
+          the next time I need a bad migraine headache and pressing company that won't leave
+          pressing company that won't leave
+ ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( elizabeth + DeCarlo = Aurora )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 9:56 Seattle )( 
+
+          ( [_x_]::-- 20:01 ( 75 ) Read Magazine Fortune ( elizabeth ) )<---[ meta note ( i whisper her name       
+          she probably knows what she's doing whereas i do not     2 hours    i couldn't live like that      i couldn't 
+          survive that     i couldn't even think about attempting that      even when I was 19      maybe i can get
+          other people to do it for me       unlike her i don't know what i am doing and everything i am doing 
+          might turn out to be the wrong thing doing and i know it and yet i keep doing it and just a waist of 
+          time just a waste of her time     i am eating Elizabeth dust     just like everybody else       but she reminds 
+          me        but she reminds me        what has she seen       Stanford    they wouldn't touch me with a 
+          tent pole     except to whack me with it     but if i make it      everything she thought was going to happen 
+          will change   suddenly       that's the idea anyway      i must be nuts     this is never going to happen     
+          but what if it does     just by doing nothing      like the Tao ) ]
+
+          What if Elizabeth had a deCarlo body
+          can such a brain can such a mind exist in a deCarlo body
+          or would having everybody fainting around her all the time prevent it
+          I want Elizabeth's brain for Aurora    yes       please get it for me
+          what about this girl who orgasms all the time without doing anything until ecstacy becomes a
+          plague
+          If you don't start going out with the boys I'm going to start going out to my mother 
+          you don't have one
+
+           ) )
+
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( dialog fragment )( copyright kjell e godø )
           ( 20140702 yyyymmdd )( 17:48 Seattle )( 
 
