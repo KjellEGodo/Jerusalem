@@ -320,6 +320,111 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( clothes )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 12:35 Seattle )( 
+
+          nobody wears standardised conformist one color conservative slave china factory clothes like people 
+          buy in shops today at the lowest possible price shafting it to them who ever they are
+          or just trying to scrape     with the word Rebel scrawled in big red 
+          letters across the cookie cutter store fronts
+          and everything inside conformist made     the iron hand of the season designers    the
+          central planners       the 5 year planners      the Beijing government issue blue 
+          the vogue
+          you better just conform      there's a jillion rules    and if you violate any of them
+          in a non sanctioned way       there will be shear hell to pay
+          for you little girl
+          now go on out there and play     it's a beautiful sunny day    everyone looks so nice
+          ( don't mind the piranha because there aren't any )
+          everywhere
+
+          all outfits are custom made      and are just whatever reflect who that person is
+          and kids are trained to shrug off the haters
+          by roll playing      they get up a filthy band of irate haters    and have them heckle you
+          and you practice what you are going to do      you can read the lines they give you
+          or try to make up your own     or say nothing      and you roll play     in steam cos    if you want to
+          join      you walk up and join     if they reject you    you get rejected     if they
+          don't reject you then you stand not rejected     or they teach you how to keep trying
+          if you want to
+
+          no more fake rebels       no more conformist rebellions       the kids are taught to
+          not hurt anyone and do what they want      and ignore the haters
+          you stand up there in front of a large band of gesticulating haters    and you feel it
+          you decide what it is that you want to do    they help you    what do you want to say
+          you practice it     everyday     in the assembly
+          with a net
+          7th period
+
+          the teachers are no longer clueless idiots by decree 
+          by decree from the larger grander spheres 
+          of clueless idiots
+
+          if you want to wear steam
+
+          you fucking wear steam
+
+          and then you brace yourself
+
+          and walk right on in
+          
+          like you've done a hundred times before
+
+          with or without a net
+
+          ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( charm I want charm )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 12:14 Seattle )( 
+
+          I want something that is charming and character driven       that will give me that
+          I used to get where I would be depressed at the end of American Graffiti because the
+          beach boys were rolling and the lights would soon come on   and I knew I would have to
+          leave
+          I want something that gives me that feeling
+          maybe it's impossible today because I know that if I don't want to leave I don't have 
+          to       I can put it on an infinite loop and watch it all day everyday if I want to
+          so the technology has killed that part of the old magic
+          that part of the old magic is dead
+          but I want to search for it
+          maybe I can find I somewhere
+          ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( sad joke )( copyright kjell e godø )
+          ( 20140704 yyyymmdd )( 12:13 Seattle )( 
+          < they are looking at a photograph >
+          character1: oh my god such a murderous expression how did he get to be so angry
+          < the camera looks at the photo
+            it is a guy like that guy on judge Judy on Thursday
+            totally expressionless >
+
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( American graffiti )( copyright kjell e godø )
           ( 20140704 yyyymmdd )( 11:13 Seattle )( 
 
@@ -327,7 +432,8 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           off the bat
           but then proceed in parallel and then keep retouching each other
            ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( enemies who are not really enemies )( copyright kjell e godø )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( enemies who are not really enemies )
+          ( copyright kjell e godø )
           ( 20140704 yyyymmdd )( 11:09 Seattle )( 
 
           enemy is right there maybe going to do something while she is defenceless 
@@ -385,6 +491,18 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           on her are happy because they think maybe they can actually win but then they start to get 
           scared someone tries to get off but can't and the rival starts to be glad he she they are not 
           going to win this thing after all
+
+          a 6 inch section of the road going in the direction of the drag race falls into the earth 
+          leaving a ditch         the little red scooter has pipes and things going into the ground
+          and equipment that looks to be left behind
+          a thing with a hook on it comes up out of the ground under the front wheel of the little
+          red scooter like on an air craft carrier.  so when she takes off it's like getting shot
+          out of an aircraft carrier
+
+          there are 4 blue flames that come out of her like a huge propeller like on an airplane
+          spinning slowly as seen from the launch pad behind her  and these flames hit the ground like the
+          helicopter blades in black hawk down     and where they hit great clouds of smoke rise up
+          like from a tornado touching down
 
           the little red scooter is TF
 
