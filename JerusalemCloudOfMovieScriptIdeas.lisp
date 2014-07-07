@@ -84,11 +84,58 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
     )<---[ authors ]
 
     ( characters--
+      ( ACharacterSpec-named:startedOnDate:atTime:copyrightBy:spec: (  )(  yyyymmdd )
+          (  Seattle )( copyright kjell e godø )(  ) )
+      ( ACharacterSpec-named:startedOnDate:atTime:copyrightBy:spec: (  )(  yyyymmdd )
+          (  Seattle )( copyright kjell e godø )(  ) )
+      ( ACharacterSpec-named:startedOnDate:atTime:copyrightBy:spec: (  )(  yyyymmdd )
+          (  Seattle )( copyright kjell e godø )(  ) )
+      ( kegNote-- these three lul the athtanists into a sofa slouch.  But somewhere along the
+          Jesus shows up.  And then things suddenly change.  ?.    glory is knowledge.  Proverbs 1 )
+      ( ACharacterSpec-named:startedOnDate:atTime:copyrightBy:spec: ( glory3 )( 20140707 yyyymmdd )
+          ( 7:30 Seattle )( copyright kjell e godø )( they say you know you have arrived when people
+          start kidding you 70% maybe it's true       red       who dyes their hair red?  she does
+          short kind of butch lesbian looking? ) )
+      ( ACharacterSpec-named:startedOnDate:atTime:copyrightBy:spec: ( glory2 )( 20140707 yyyymmdd )
+          ( 7:30 Seattle )( copyright kjell e godø )( they say you know you have arrived when people
+          start kidding you 70% maybe it's true       brunet impossibly big ) )
+      ( ACharacterSpec-named:startedOnDate:atTime:copyrightBy:spec: ( glory1 )( 20140707 yyyymmdd )
+          ( 7:30 Seattle )( copyright kjell e godø )( they say you know you have arrived when people
+          start kidding you 70% maybe it's true      blonde ) )
+      ( ACharacterSpec-named:startedOnDate:atTime:copyrightBy:spec: ( Lawrence Garrikon )
+          ( 20140707 yyyymmdd )( 6:57 Seattle )( copyright kjell e godø )( glory1 infects him with 
+          topological curvature      before that happened he was a thug for life causing lots of trouble
+          and gumming up the immigration system and the TF voting system.   TF has a hyperlinked 
+          help system and you can embed high level math books into it.  So the Topological Curvature
+          book will be embedded into the help system. TFCommentStreams are hyperlinking. and 
+          all math books needed to define all it's terms will be in there too.   And related general relativity
+          books also.  Perhaps a proof checking thing like coq will also be in there and maybe a verbose
+          proof checker like I was working on but it has to be animated somehow.  all this junk will be
+          hiding in the TF help system and will relate to the Jerusalem movies. People can stick
+          market forums into the help system and markets too and hang up a shingle about math
+          there in that section of the TFHelp system.  If coq can animate
+          it's proofs then all topological curvature proofs will be rewritten in coq ) )
+      ( ACharacterSpec-named:onDate:atTime:copyrightBy:spec: ( Lizbet Garrikon )
+          ( 20140707 yyyymmdd )( 6:57 Seattle )( copyright kjell e godø )( Lawrence's good sister
+          who is a monk and runs a salon of nothing but extreme adults and she wears the same suit everyday
+          like doc Martin but I don't think she frowns all the time      no she looks like a light bulb
+          has been inserted up her back side and the light from it is shooting out her eyes and ears
+          nostrils and mouth when she opens it butt she feels no pain       she and Lawrence fight 
+          and reflect the larger fight between good and evil going on in the Jerusalem ) )
       ( ACharacterSpec-named:copyrightBy:spec: ( rad )( copyright kjell e godø )
         ( initially patterned after rad ( needs a different name ). He is a black smith. ) )
       ( ACharacterSpec-named:copyrightBy:spec: ( lynn )( copyright kjell e godø )( initially patterned after lynn 
         ( needs a different name ) ) )
-      ( ACharacterSpec-named:copyrightBy:spec: ( kiev )( copyright kjell e godø )( kiev is an high functioning 
+      ( ACharacterSpec-named:copyrightBy:spec: ( kiev )( copyright kjell e godø )( 
+          I think Kiev is an artificial human that is authentic like Adam
+          And Aurora is a synthetic human that is not authentic     so Aurora learns what she is
+          but Kiev does not      but he doesn't seem to have any parents or last name?   Nobody
+          seems to ask about it and neither does he.  ok there is some explanation involving the death
+          of the parents.  In a glue accident.
+
+
+
+        kiev is an high functioning 
         autistic spectrum black smith christian amish young man 18 to 22 quite buff like a body builder.  he gets 
         interested in astronomy.  and he is looking at the stars one night through a home made telescope that he 
         somehow cobbled together from some vague sketches in a library book.  he has been working on it for a long 
@@ -348,8 +395,502 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
+
+
+
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
+          up you hazard )( copyright kjell e godø )( 20140624 yyyymmdd )
+          ( 6:06 Seattle )( I would like to create a different way of cussing 
+          that sounds whimsical and foreign and non threatening and comical 
+          that occasionally dips into the sinister but not all the time.  
+          Like dr smith in lost in space ) )
+  
+
+
+
+
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: 
+          ( I would like to write a sex scene )( copyright kjell e godø )
+          ( 20140624 yyyymmdd )( 6:11 Seattle )( I would like to make a
+          sex scene now.  why not.  it just popped into my head.  I want
+          to redo it 7 times.  the same thing 7 times.  but not now.
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+
+
+
+
+
+
+
+
+          ( attempt#:startedOnDateTime:finishedOnDateTime:-- ( 2 )
+          ( ( 20140707 yyyymmdd )( 1:36 Seattle ) )( (  )(  ) )
+
+          An arranged marriage.  How is it done.  She has no mother and 
+          father?  He made those too?  He didn't bother.  He made those 
+          later.  No they just tell him she comes from one of the other 
+          whatchamacallits around.  Her parents both died in a fermentation 
+          accident.  But why him.  Well she needs a husband and all the 
+          others just happen to be taken this month so why not.  - You need
+          to be settled down.  And looks to she's looks to she might be just
+          the girl to do it. -  In answer to you query <a pause> <reading>
+          <waiting> -- mm I didn't say anything -- - in answer to your query 
+          you're too polite to ask - and I really shouldn't answer you 
+          but I will - <sly glint> - yes - you're thinking - God help you 
+          - what is her great fault - that we are saddling her with you 
+          - on such short notice - you will rue that thought - her greatest
+          fault - it's strange but true - is that she's too perfect.  And
+          because of this no one will touch her with a tent pole and she 
+          sits alone every night sewing things for people.  Who just can't 
+          stand to be around her.  They don't want to it's not her fault 
+          but she just drives everyone crazy.  And though they try to stay.
+          Though they try to talk to her.  To be with her.  They just have
+          to turn away before too long.  And flee.  Making apologies that
+          drift back up to her as they quickly take their leave feigning
+          bladder problems.
+
+          the thought of her being shunned in this way draws up a involuntary like in him
+          he knows the feeling well he feels his mouth his jaw solidifying
+          he hears his sound slowing down to the point of dry pained wide eye looks
+          he feels his brain turning to mud and then wild rays bursting out of the thick soup
+          that he watches never knowing what calamity they will soon return
+          on peoples faces
+          bracing
+          for it
+
+
+
+          the elder is reading
+          he sees it
+          and he knows 
+          where it comes from
+          but he can't really feel it
+          he doesn't know
+          but he puts his hand up on Kiev's shoulder
+          ( and whispers )<---[ a breach ( this text appeared all by itself without kjell typing it in ) ]
+          ( kegNotes-- ( what the hell does he whisper )( I don't think he whispers here )( I'm trying to 
+              think of something )( but nothing is coming ) )
+          ( who:doing:saying-- ( elder-- Fredrick Garrikon )
+              ( and whispers so loud you could hear it all the way across the room and 
+                  out the windows and across the blue green wet morning lawn 
+                  and into the next house where they 
+                  are listening so hard they 
+                  are picking it up on their short wave tuning forks and yet
+                  they can't hear a word
+                  because they are all deaf
+                  and they don't even know they are listening
+                  or what they are listening to
+                  and he whispers softly ) <---[ doing ]
+              remember the name lizbet garrikon
+              where you're going
+              you're going to need it )<---[ Lizbet Garrikon is Lawrence Garrikon's good sister ]
+                                                              ( who:doing:saying-- ( elder-- Fredrick Garrikon )(
+              another sly glint ) )
+          ( who:doing:saying-- ( Kiev )
+              ( Kiev doesn't know what the hell the elder just said
+              and Kiev doesn't know if he likes all these sly glints he is getting
+              his stomach starts to turn
+              like finding out your father was a chicken farmer who took to raising men 
+              and then slaughtering them
+              just like chickens in huge well designed and well constructed structurally cement pires 
+              )<---[ doing ]
+          )<---[ Kiev ]
+                                                              ( who:doing:saying-- ( elder-- Fredrick Garrikon )
+              ( the elder read this too ) )
+          ( notation-named:Definition:-- ( Kiev elder notation )
+              ( ( Kiev's speech : -- speech -- )( Kiev's thoughts : -- <thoughts> -- )
+              ( Fredrick Garrikon's speech : - speech - )( Fredrick Garrikon's thoughts : - <thoughts> - )
+              ( actions : <actions> ) )
+              .
+              - and I've got a little surprise - for you - Kiev - I think you'll like it -
+              -- <oh no not another> -- 
+              - no don't worry - it's not a trick - <thinking better of it> - <a pause> - <reconnecting> - 
+              <squeezing his shoulder> 
+              - you will like it - <another sly glint>
+              -- <Kiev could see he was trying not to glint now but it wasn't working> --
+              -- <Kiev could see that he had just realised that any further talk would just dig him in deeper> --
+              -- <so he said> --
+              - you're going to like it - a lot - <a distant look slightly past him> 
+              - <akin to guilt but with mitigations muddying the water> -
+              - a lot - <he gives Kiev's shoulder a little push> <it's time to go>
+              -- Thank you sir -- - see you Sunday Kiev - -- Yes --
+              -- <Kiev walks out the door wondering what just happened> --
+              - <another sly glint but far away also wondering> -
+
+          )<---[ notation ]
+
+
+          The first he sees her she's in white.  It's too austentatious.  
+          But the dress is part of her.  It grew out of her.  The plain 
+          one she was wearing swelled up and burst when she stood on the 
+          aisle and took the elder's arm and out swung all of this.  A gasp. 
+          A torrent of gasps no one heard.  As they all crane.  and then a 
+          mass memory cutting it short.  One of the elders shoots black at 
+          the other one on her arm with fire in his eyes bulging blood red 
+          vessels shot threw with momentary malice red white and blue hot.  
+          The other one shoots back bloody murder until he remembers looks 
+          at her shields his eyes and here and there at her and then back to him and shrugs.  
+          Who knows.  God damned software.  
+          .
+          her waiste tight white iron belt
+          petite
+          tiny ribs rays lines shooting up hip
+          bouquet
+          the fabric
+          cyrus lace between tight hip that loose cloud whisps on their way up
+          sucking all the clear of this impossible green and bright blue day 
+          compacting into the foundations arrising now to support
+          flare
+          down
+          sweeping out
+          not too wide not too narrow a fiery furnace youth she
+          perfect
+          perfects sloping out and down in back her wide turning narrows 
+          as she passes but upheld hitting the peeks of clovage
+          higher than he could know    from his vantage
+          two round planets press
+          sub white echo existence
+          in her wake
+
+          foundation stones
+          waisting 
+
+          veiled yes
+          a blush
+          downed in white
+          goose h
+
+          her
+          twins newclear the sun brief peeks now and now not 
+          but now echo riple p through the blue veils of clear 
+          moment too close t ground rubble's bounce for any whitness 
+          in him oh survive i capped i captured here wave on their way 
+          momentary capture capturing brief f fstop focal here but now on their way 
+
+          on their way up on their way out on their way at
+          press          then the blast wave hits       knocking all hats akilter     or was that just the wind
+          white whithering V sheilding all the world from her naked 
+          fusing core but it's a lie it's not protecting him at all but devastating more
+          elyptic curves sheets her fiery red yellow youth her topmost beguiling plush of space filling surface her 
+          she's too analog to e er understand to ever know she goes down forever with no bottom in sight
+          coiling into her divide crushing into her between bouncing back another round to equal swell
+          uncountable any all can always can has can one more unknown complex fill
+          a vortex her he cant escape nev r
+          once he i n alls in to her own too     much
+          and she still as want drops in the key with a unknowing look
+          disappearing vanishing between her
+          finger pressed down
+          out
+          of 
+          sight
+          where 
+          he must
+          search for it
+
+          he touches it
+          with her finger
+          so little
+          pushing out in filling
+          chaos lit mad driving all a round
+          so high stretch
+          she glares at him
+          bemused disappointed 
+          at the point of impact
+          with no pact
+          untouched
+          he's beginning to shake
+          she sees it and it hurts
+
+          she removes her finger
+
+          tears well up from a lake
+          she's held so long forever new store
+          she starts to pull away
+          this shocks him
+          bad         wakes him up
+          he feels the pick and he knows he has to act
+          he raises his hand quick and holds it up flat
+          and she stops
+
+          She looks up reading
+          tightly locked
+          he goes blind again
+          there seems to be some kind of a dim white halo radiating out from her eyes
+          so large
+          so many levels
+          so deep
+
+          there he is again      he reads
+
+          his mind has just gone blank
+
+          she sees it and her eyes get pulled up stantaineous sucked up in the middle like at Dresden 
+          instant and gone
+          but his attempt to stop her gives her a shot of spite a call to arms against her long plight
+          her eyes flash hot
+          her lips stiffen spout
+          and she grabs his finger lifts it and presses it home into her balanced and lets go
+          her eyes widen a little called back to life he watches them dance away from him and 
+          saying to herself he reads this is nothing like my touch this is new surprising me 
+          what are you doing to me Kiev she looks
+          but waves stop her waves rushing over her from out of the single point of contact at the tip
+          why is this different than when I brush against a cabinet door on my way 
+          but it is
+          oh God it is
+          her eyes roll up a little gliding smooth instant gone
+          and drift back down
+          and fight to refocus
+          their spell broken he dispanics back and reads
+          is he taking something from me    he shouldn't    oh wait
+          she looks down
+          and sees her own magnificence
+          oft hated cataclysmic rolling summer hills
+          and knows what she is going to do to him
+          and reels
+
+          he can't move
+
+          )<---[ attempt # 2 ]
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+
+
+
+
+
+
+
+
+          ( attempt#:startedOnDateTime:finishedOnDateTime:-- ( 1 )
+          ( ( 20140624 yyyymmdd )( 6:11 Seattle ) )( ( 20140624 yyyymmdd )( ? ) )
+
+          An arranged marriage.  How is it done.  She has no mother and 
+          father?  He made those too?  He didn't bother.  He made those 
+          later.  No they just tell him she comes from one of the other 
+          whatchamacallits around.  Her parents both died in a fermentation 
+          accident.  But why him.  Well she needs a husband and all the 
+          others just happen to be taken this month so why not.  - You need
+          to be settled down.  And looks to she's looks to she might be just
+          the girl to do it. -  In answer to you query <a pause> <reading>
+          <waiting> -- mm I didn't say anything -- - in answer to your query 
+          you're too polite to ask - and I really shouldn't answer you 
+          but I will - <sly glint> - yes - you're thinking - God help you 
+          - what is her great fault - that we are saddling her with you 
+          - on such short notice - you will rue that thought - her greatest
+          fault - it's strange but true - is that she's too perfect.  And
+          because of this no one will touch her with a tent pole and she 
+          sits alone every night sewing things for people.  Who just can't 
+          stand to be around her.  They don't want to it's not her fault 
+          but she just drives everyone crazy.  And though they try to stay.
+          Though they try to talk to her.  To be with her.  They just have
+          to turn away before too long.  And flee.  Making apologies that
+          drift back up to her as they quickly take their leave feigning
+          bladder problems.
+
+          the thought of her being shunned in such a way draws up a involuntary like in him
+          he knows the feeling well he feels his mouth his jaw solidifying
+          he hears his sound slowing down to the point of pain
+          he feels his brain turning to mud and then wild rays bursting out of the soup
+          that he watches never knowing what calamity they will soon return
+          on peoples faces
+          bracing
+
+
+  
+          the elder is reading
+          he sees it
+          and he knows 
+          where it comes from
+          but he can't really feel it
+          he doesn't know
+          but he puts his hand up on Kiev's shoulder
+          ( and whispers )<---[ a breach ]
+          another sly glint
+          and Kiev doesn't know if he likes all these sly glints he is getting
+          his stomach starts to turn
+          like finding out your father was a chicken farmer who took to raising men and then slaughtering them
+          just like chickens in huge well designed and constructed structural cement pires
+          the elder read this too
+          .
+          - and I've got a little surprise - for you - Kiev - I think you'll like it -
+          -- <oh no not another> -- 
+          - don't worry - it's not a trick - <thinking better of it> - <a pause> - <reconnecting> - 
+          <squeezing his shoulder> 
+          - you will like it - <another sly glint>
+          -- <Kiev could see he was trying not to glint now but it wasn't working> --
+          -- <Kiev could see that he had just realised that any further talk would just dig him in deeper> --
+          -- <so he said> --
+          - you're going to like it - a lot - <a distant look slightly past him> 
+          - <akin to guilt but with mitigations muddying the water> -
+          - a lot - <he gives Kiev's shoulder a little push> <it's time to go>
+          -- Thank you sir -- - see you Sunday Kiev - -- Yes --
+          -- <Kiev walks out the door wondering what just happened> --
+          - <another sly glint but far away also wondering> -
+
+
+          The first he sees her she's in white.  It's too austentatious.  
+          But the dress is part of her.  It grew out of her.  The plain 
+          one she was wearing swelled up and burst when she stood on the 
+          aisle and took the elder's arm and out swung all of this.  A gasp. 
+          A torrent of gasps no one heard.  As they all crane.  and then a 
+          mass memory cutting it short.  One of the elders shoots black at 
+          the other one on her arm with fire in his eyes bulging blood red 
+          vessels shot threw with momentary malice red white and blue hot.  
+          The other one shoots back bloody murder until he remembers looks 
+          at her and here and there at her and then back to him and shrugs.  
+          Who knows.  God damned software.  
+          .
+          her waiste tight white iron belt
+          petite
+          tiny ribs rays lines shooting up hip
+          bouquet
+          the fabric
+          cyrus lace between tight hip that loose cloud whisps on their way up
+          sucking all the clear of this impossible green and bright blue day 
+          compacting into the foundations arrising now to support
+          flare
+          down
+          sweeping out
+          not too wide not too narrow a fiery furnace youth she
+          perfect
+          perfects sloping out and down in back her wide turning narrows 
+          as she passes but upheld hitting the peeks of clovage
+          higher than he could know    from his vantage
+          two round planets press
+          sub white echo existence
+          in her wake
+
+          foundation stones
+          waisting 
+
+          veiled yes
+          a blush
+          downed in white
+          goose h
+
+          her
+          twins newclear the sun brief peeks now and now not 
+          but now echo riple p through the blue veils of clear 
+          moment too close t ground rubble's bounce for any whitness 
+          in him oh survive i capped i captured here wave on their way 
+          momentary capture capturing brief f fstop focal here but now on their way 
+
+          on their way up on their way out on their way at
+          press          then the blast wave hits       knocking all hats akilter     or was that just the wind
+          white whithering V sheilding all the world from her naked 
+          fusing core but it's a lie it's not protecting him at all but devastating more
+          elyptic curves sheets her fiery red yellow youth her topmost beguiling plush of space filling surface her 
+          she's too analog to e er understand to ever know she goes down forever with no bottom in sight
+          coiling into her divide crushing into her between bouncing back another round to equal swell
+          uncountable any all can always can has can one more unknown complex fill
+          a vortex her he cant escape nev r
+          once he i n alls in to her own too     much
+          and she still as want drops in the key with a unknowing look
+          disappearing vanishing between her
+          finger pressed down
+          out
+          of 
+          sight
+          where 
+          he must
+          search for it
+
+          he touches it
+          with her finger
+          so little
+          pushing out in filling
+          chaos lit mad driving all a round
+          so high stretch
+          she glares at him
+          bemused disappointed 
+          at the point of impact
+          with no pact
+          untouched
+          he's beginning to shake
+          she sees it and it hurts
+
+          she removes her finger
+
+          tears well up from a lake
+          she's held so long forever new store
+          she starts to pull away
+          this shocks him
+          bad         wakes him up
+          he feels the pick and he knows he has to act
+          he raises his hand quick and holds it up flat
+          and she stops
+
+          She looks up reading
+          tightly locked
+          he goes blind again
+          there seems to be some kind of a dim white halo radiating out from her eyes
+          so large
+          so many levels
+          so deep
+
+          there he is again      he reads
+
+          his mind has just gone blank
+
+          she sees it and her eyes get pulled up stantaineous sucked up in the middle like at Dresden 
+          instant and gone
+          but his attempt to stop her gives her a shot of spite a call to arms against her long plight
+          her eyes flash hot
+          her lips stiffen spout
+          and she grabs his finger lifts it and presses it home into her balanced and lets go
+          her eyes widen a little called back to life he watches them dance away from him and 
+          saying to herself he reads this is nothing like my touch this is new surprising me 
+          what are you doing to me Kiev she looks
+          but waves stop her waves rushing over her from out of the single point of contact at the tip
+          why is this different than when I brush against a cabinet door on my way 
+          but it is
+          oh God it is
+          her eyes roll up a little gliding smooth instant gone
+          and drift back down
+          and fight to refocus
+          their spell broken he dispanics back and reads
+          is he taking something from me    he shouldn't    oh wait
+          she looks down
+          and sees her own magnificence
+          oft hated cataclysmic rolling summer hills
+          and knows what she is going to do to him
+          and reels
+
+          he can't move
+
+          )<---[ attempt # 1 ]
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+          |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+
+
+
+
+
+
+
+
+
+
+
+          ) )<---[ I would like to write a sex scene ]
+
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( clothes )( copyright kjell e godø )
           ( 20140704 yyyymmdd )( 12:35 Seattle )( 
 
@@ -3407,6 +3948,9 @@ trails from the edge
           that sounds whimsical and foreign and non threatening and comical 
           that occasionally dips into the sinister but not all the time.  
           Like dr smith in lost in space ) )
+
+
+
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: 
           ( I would like to write a sex scene )( copyright kjell e godø )
           ( 20140624 yyyymmdd )( 6:11 Seattle )( I would like to make a
@@ -3444,6 +3988,8 @@ trails from the edge
           on peoples faces
           bracing
 
+
+  
           the elder is reading
           he sees it
           and he knows 
@@ -3605,6 +4151,9 @@ trails from the edge
 
           he can't move
           ) )
+
+
+
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( how I feel it )
           ( copyright kjell e godø )( 20140624 yyyymmdd )( 6:11 Seattle )
           ( I can't really listen to anyone else's opinion of what I write.  I 
