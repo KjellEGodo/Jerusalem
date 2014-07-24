@@ -460,6 +460,8 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           trying to hide your true talents will get you no where here I know who you truly 
           are so let me make this as painless as I know how ) )
 
+          lest you think we are not serious not corporate enough you will see just how
+          serious we are      just as soon as we can stop laughing
 
            ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( an ode to a pretty smart girl )( copyright kjell e godø )
