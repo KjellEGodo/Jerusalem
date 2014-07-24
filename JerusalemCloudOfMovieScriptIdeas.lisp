@@ -393,8 +393,101 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( an ode to a pretty smart girl )( copyright kjell e godø )
+          ( 20140723 yyyymmdd )( 19:12 Seattle )( 
+
+
+          to Audre.Torgerson
+          0 minutes agoDetails
+
+          New Contact
+
+          Audre
+
+          Torgerson
+
+          USBank
+
+          home             42 5823 0444
+          work             18008722657
+          add phone
+
+          home             Audre.Torgerson@usbank.com
+          add e-mail
+
+          Ringtone         default
+          text Tone        default
+
+          home page        http://www.usbank.com
+          add URL
+
+          home             13233
+                           100th Ave NE
+                           Kirkland
+                           WA           98034
+                           United States
+          add address
+
+          add birthday
+
+          add date
+
+          add related name
+
+          add social profile
+
+          add instant message
+
+
+          Notes
+          Audre Torgerson : Personal Banker : barbie que , well versed in sales 
+          tactics, seems like, well versed in corporate speak.  she is a bright 
+          fishing lure in a weary cloudy world.  eye candy to fix the wandering 
+          eye and redirect it.  and put you on a USBank desired glide path, more 
+          banking less wandering, more  directed, fixing me, so I'm no longer 
+          wandering about, aimlessly bumping into things.  smart.  very smart.  
+          and she is good at it.  nice.  a smart move by USBank.  well trained.  
+          polished.  a smart move by USBank.  is she replicated in every branch?  
+          that would be too good.  can I put an Audre Torgerson effect into my 
+          TruthFutures.com website for people just seeing it for the first time?  
+          to hook them.  to redirect them.  I should.  can I learn something from 
+          this?  I should.  but what could I put in there.  pretty but not befuddlingly 
+          pretty,  the hook is in her and elsewhere here.  she gently closed the book 
+          on me.  a sales seduction tactic,  I felt it,  I noted it,  she executed 
+          it well.  is this her own move or was she taught to do this.  she is 
+          watching for signs she is having the usual effect on me that she has on 
+          most guys and always thinking what to do next without seeming to.  to put 
+          her charms to a purpose.  smart.  I feel like a ball that's being batted 
+          around by a gentle cat.  she is careful to bring the seduction right up 
+          to the edge of corporate propriety but no further.  but this seems to wear 
+          on her as well.  a bit.  she wants to unleash her full affection on 
+          someone, like most girls do.  with total abandon.  holding nothing back.  
+          and this process of using this holy she would to her one and only to carve 
+          strange men into USBank customers seems just a tiny bit stressful.  I 
+          think.  for her.  for Audre.  one senses an honest frown mingled with 
+          the corporate sugar.  sugar that is withdrawn at just the right moment.  
+          I should learn from her.  that fixes you at the desired distance.  no 
+          closer no farther.  well made.  my hat is off to her teacher(s).  if her 
+          teacher is herself then all the more hatless will i go.  I will go 
+          military mohawk buzz cut in honor of her then.  hopefully as her star 
+          bright girl looks fade she will get smarter and smarter until she is 
+          running this place.  why not.
+
+          an ode to a pretty smart girl
+          and company
+          who just taught me
+          much
+          today
+
+          add field
+
+
+
+
+
+
+
+           ) )
 
 
 
