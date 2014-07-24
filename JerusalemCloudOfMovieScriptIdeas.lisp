@@ -389,8 +389,48 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Vix Kiev glory sex scene standard 
+          pot boiler type discard )( copyright kjell e godø )
+          ( 20140724 yyyymmdd )( 6:34 Seattle )( 
+
+          first person Kiev
+
+          4th time, breasts, resists, gives in, descriptions, imagining the daughter
+
+          without glory         pray tell where     please fix Vix
+
+          
+          oh no I ing glory
+
+          Vix doesn't want to breed a synthetic so soon after knowing somehow Aurora in this no cursed minion armies
+
+          glory lets it be known it's her lets a glimmer of the larger split then gone
+          
+          so close yet so far
+
+          keep wanting but no she protests but can't stop smiling
+
+          but it's no go
+
+          the gift
+
+          binary black holes
+
+          they cower but know they are safe because of me first person no relation
+
+          why won't she just fix her
+
+          why does she let this virus of knowing persist
+
+          why doesn't she just cure me
+
+          I mean her
+
+          I mean delete the disease
+
+          link Kiev to the real Kiev missiles rebels KGB demo riots
+
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( first cut at an Audre effect )( copyright kjell e godø )
           ( 20140724 yyyymmdd )( 4:29 Seattle )( 
 
