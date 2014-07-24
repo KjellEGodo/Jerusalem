@@ -391,8 +391,37 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( first cut at an Audre effect )( copyright kjell e godø )
+          ( 20140724 yyyymmdd )( 4:29 Seattle )( 
+
+
+          ( [_x_]::-- 4:24 ( 396 ) Sleep , Get up , Bathroom 1 , Get hooked up , Sleep think 
+          ( does he know what he's talking about or is this just something his minions have 
+          cooked up for him to say or am I just caught up in another coincidence giving the 
+          insects credit for something they didn't do again most popular sham in the world 
+          that I designed myself ridiculous I know for damm sure that I have three fans ok 
+          maybe five fanatics in the KGB who are devoted librarians of my work who love to 
+          show me they still exist and await my next case of nausea to the point of vomit 
+          extreme with bated breath the rest is just ridiculous and I wouldn't believe it 
+          even if I knew it were true beyond a lie of a doubt although I do remember designing 
+          it so my memory is not totally bad at least the Alzheimer's hasn't gotten me yet 
+          and the KGB have let me think I can win so far letting me think I can ask them a 
+          question as if our aims were one on this one point but if you ask them a question 
+          what price will be there in the morning to pay so if I do ever ask I will make 
+          sure there is no other way and then brace for the cure and wonder if it's a cure 
+          or if it's the end hello I'm Aurora but when I'm angry you can call me V I just 
+          want to ask you one question before we proceed are you a power user no ok let me 
+          make this as painless as I know how yes I'm going to ask you again because I want 
+          to make sure I heard you right are you a power user yes because a power user reads 
+          all the documentation in order that they can actually be a power user and not some 
+          phoney pony so I will ask you again are you a power user will you read all of the 
+          documentation so you will know everything and own it or no because I really want 
+          to know now yes ok let me make this as painless as I possibly can no I thought so well 
+          trying to hide your true talents will get you no where here I know who you truly 
+          are so let me make this as painless as I know how ) )
+
+
+           ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( an ode to a pretty smart girl )( copyright kjell e godø )
           ( 20140723 yyyymmdd )( 19:12 Seattle )( 
 
