@@ -387,8 +387,59 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( cowVix )( copyright kjell e godø )
+          ( 20140725 yyyymmdd )( 5:24 Seattle )( 
+
+          Vix is at a bar
+
+          3 urban cowboys walk in joined by a forth
+
+          They see her figure and immediately assume that she is riding through life on the coat
+          tails of her frontal binary constellation they make a comment hoping to see the doe eyed
+          bewilderment and involuntary supplication of the center of attention always and always for 
+          no good reason. They hope to add to the bullying they imagine she has received since her
+          birth.  Bullying coupled with access to a guaranteed minimum of livelihood for nothing.
+
+          And she gives them their doe eyes.  With unseen flashes of anger.  Which they don't quite
+          but they do see without knowing they see they start ignoring what they see.  Which encourages them
+          to come on with their bum's rush at her.  Offering free drinks free things in return for
+          her continued lifelong of flush girl stupidity.  Which anyone and they could see was being
+          generally enforced.
+
+          But then all of a suddenly her spine stiffens and her posture improves and her expression
+          changes.  which befuddles them.  because they suddenly see that their campaign is going to
+          go nowhere.  And her voice takes on a tone of authority.  And she out wits them several 
+          times in rapid succession.  While invisibly summoning a minion who comes over and starts
+          talking secret politics with her.  And the another one comes over and starts talking
+          category theory with her.  And then they leave and she sits there turned away but obviously
+          looking right at them.  And when they know that they have her total attention.
+
+          She looks right at them.  And they cower.
+
+          They look around trying to assess the context and the danger.
+
+          But she laughs and puts them at ease a little.
+
+          I'm Vix.
+
+          Who are you?
+
+          And they immediately start involuntarily nodding and removing their ten gallon hats
+          and move on to bowing and scraping visibly wishing they could put their hands on
+          the floor and nervously looking for an exit.   any exit.
+
+          She steps into their space and looks them over like a general inspection.
+
+          Then pausing thinking she makes a comic turn and extends the back of her hand which makes them
+          immediately curtsey and take her hand and be extremely careful not to touch her
+          skin with their lips.  but she pushes her arm forwards so they touch.  And
+          she does an slight impression of the three stooges and pulls her hand away quickly 
+          and then slaps him with the back of her hand medium hard which knocks them all to the floor.
+
+          And she bursts out laughing.  Really loud.
+
+
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Vix Kiev glory sex scene standard 
           pot boiler type discard )( copyright kjell e godø )
           ( 20140724 yyyymmdd )( 6:34 Seattle )( 
