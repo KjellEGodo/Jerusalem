@@ -383,8 +383,13 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Shakespeare )( copyright kjell e godø )
+          ( 20140727 yyyymmdd )( 8:51 Seattle )( I want one or more of the episodes to be Shakespeare set
+          in the Jerusalem.  Ok    do all of them.    All of them.   up to the quality of Oliviet sorry 's
+          hamlet.    Elizabethan updated into the re enactment future.    And then I want new fake Shakespeare
+          plays or pieces of plays.     I want this style of language to keep coming up like the terminator
+          but I want brand new stuff written by the market.  A recreation of Shakespeare's brain in all the
+          brains of his fans.  And aided by one of those essence distillation programs.  go. ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( John Birkey )( copyright kjell e godø )
           ( 20140727 yyyymmdd )( 5:59 Seattle )( I want John Birkey space ship painter to have a large hand
           in making the Jerusalem in the non Mandelbrot spaces.  Or maybe the Mandelbrot spaces can be informed
