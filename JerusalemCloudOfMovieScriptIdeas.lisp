@@ -466,8 +466,25 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           what ever you don't call it     or just what ever    the headless market will have to dream
           it all up.   and all of it will be TOTALLY UNEXPLAINED.   I don't care.   idgad.  give me
           the money and I will not spend it on palaces.   not one.     I'll make a palace that is a
-          single honey pot.    but I know what I want to buy.  I'll be the first homeless b
-          if I can Elizabeth  ) )
+          single honey pot on the shoulder.    but I know what I want to buy.  I'll be the first homeless b
+          if I can         elizabeth 
+
+          jl mak     o ops       Berkey        damm auto correct      I thought it knew him but apparently
+          not
+
+          I think Berkey is an architect.    His ships are like doll houses with all these tiny architectural
+          spaces all over the surfaces of his ships.  The ships seem to be traveling ways to deliver the
+          architecture.  Even the ones that are in motion seem to be fixed in place except for one that
+          is diving into a planet.  It looks like a cruise ship.  The JL MAKO is what I said but 40% what
+          I was thinking.     I want it all to be done with animation cgi and built up like via the layering
+          on of brush strokes.  With transparency delivered via opaque paint every where just like in the 
+          paintings.  I want to
+          mimic the paintings as much as possible.  But the architecture is too small.  Too tiny.  I want
+          to go into those spaces.  I want the ships or spaces to be like mobiles with many dispfferent 
+          parts layered on top of each other.  bright white and colored glasses.  I want stairways that
+          are wild.  unexpected.  Berkey.  I want Berkey architecture.  all the way.
+
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( cowVix )( copyright kjell e godø )
           ( 20140725 yyyymmdd )( 5:24 Seattle )( 
 
