@@ -394,7 +394,8 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           I want Arnold playing Shakespeare.  I want to take a bunch of action heroes like the expendables
           etc Stallone etc and link them all with royal s coaches and bust them out of their stereo types
           and have them do Henry the 5th.   or something.    ok           ok              ok gdi.   ok
-          seriously       and then comically    occasionally busting down the 4th wall in exhaustion. ) )
+          seriously       and then comically    occasionally busting down the 4th wall in exhaustion.  He
+          seems to be doing penance now.  free. ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( John Birkey )( copyright kjell e godø )
           ( 20140727 yyyymmdd )( 5:59 Seattle )( I want John Birkey space ship painter to have a large hand
           in making the Jerusalem in the non Mandelbrot spaces.  Or maybe the Mandelbrot spaces can be informed
