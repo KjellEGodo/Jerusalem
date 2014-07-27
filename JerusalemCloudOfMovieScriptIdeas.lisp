@@ -389,7 +389,12 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           hamlet.    Elizabethan updated into the re enactment future.    And then I want new fake Shakespeare
           plays or pieces of plays.     I want this style of language to keep coming up like the terminator
           but I want brand new stuff written by the market.  A recreation of Shakespeare's brain in all the
-          brains of his fans.  And aided by one of those essence distillation programs.  go. ) )
+          brains of his fans.  And aided by one of those essence distillation programs.  go. 
+
+          I want Arnold playing Shakespeare.  I want to take a bunch of action heroes like the expendables
+          etc Stallone etc and link them all with royal s coaches and bust them out of their stereo types
+          and have them do Henry the 5th.   or something.    ok           ok              ok gdi.   ok
+          seriously       and then comically    occasionally busting down the 4th wall in exhaustion. ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( John Birkey )( copyright kjell e godø )
           ( 20140727 yyyymmdd )( 5:59 Seattle )( I want John Birkey space ship painter to have a large hand
           in making the Jerusalem in the non Mandelbrot spaces.  Or maybe the Mandelbrot spaces can be informed
