@@ -385,8 +385,78 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( John Birkey )( copyright kjell e godø )
+          ( 20140727 yyyymmdd )( 5:59 Seattle )( I want John Birkey space ship painter to have a large hand
+          in making the Jerusalem in the non Mandelbrot spaces.  Or maybe the Mandelbrot spaces can be informed
+          by Birkey.  Modified by a Haskell function that can in sert the Birkey rainbow etc idioms into the
+          Mandelbrot baroques to make the Mandelbrots more lush and with a Birkey lemon twist.  But I want 
+          Birkey or some good exact essence distilled imitators if Birkey is not with us or I don't know 
+          what rumours of my death were highly exaggerated.  But I want Birkey to go scitzophrenic.  I want
+          all limits to just be gone.  Take it up by a factor of 10 and then take that up by another 1000x
+          and then take that and.     better take that up by another trillion .  And then just keep on
+          going.  from there.   I don't want any flying potatoes though.  So somebody.  I don't know who
+          has to stick a bomb into the rubber buggy baby bumpers and explode it like a one of those hanging
+          things that they hang down into baby cribs.  I've been robbed of the name.  calliopy.  no.  nuts.
+          it's not coming.  I want everything oh it just brushed my cheek.  gone again.  come on.  no.
+          flatish shapes hanging down from strings that spin around.  spinning in English eyes.  nuts.  I
+          can't think of it.  like mechanical diagrams of engines where the engine is exploded and you can
+          see between the parts.  I want everything to be like this.  topology baby.  topology weaving into
+          the spaces between generating all sorts of architectural emotions.  miracles and wonder.  so when
+          you are docking with something you don't dock with its surface.          NO        gdi!  you
+          float into the thing like tanikamikazi's apartment but a jillion times more.  And you dock with the
+          place you want inside of it already.  The evil can be potatoes.  They are trying to hide their
+          true intentions behind a thick and heavy and ponderous outer shell.  So neuro typical.    sorry.    I didn't
+          just say that.  but I just did.   And keeping all their cards tightly hidden.  And bristling.  
+          Always bristling.  Offended by literally everything.  Even the absense of anything.  Essentially 
+          they are looking for offence.  And if they can't find it they will make some up.  and start asking
+          if they are being talked to.  Because talked to or not they are going to be taking offence.
+          There is no way to stop it or avoid it.  There is nothing you can do.  So don't even try.  
+          They teach me to
+          do it too.  maybe they have taught me well.  maybe they will come to my rescue to cut down one of
+          them barring me from getting through.  or I don't know.  I don't I won't make any estimates of
+          just what the KGB might in any situation do.  I don't.  I won't do it.  or maybe they will be
+          the one with the crusifix in hand and.  I won't put anything past them.  never.  and handing
+          me the nails.  ok.  what the fuck was I talking about.    or what the fee.   so.  neuro.
+          So the evil can be potatoes.  The rest must be open.  Transparent.  Rotating like 
+          .   there is that word I'm missing again.  Rotating like mobil's.  Mobeel's?  is that it?
+          mobil's ?   mobiles?  mobiiles!     mobeyel's ?     Yes and the energy conduits like blood
+          vessels arteries and blue veins with round transparent balls collecting and redistributing
+          and changing colors and shapes when it moves.   Like those pyramid ships in 2001 with the
+          rapidly zooming calidoscopic tunnelling electric electricity repeated on all of their surfaces.
+          I want to take those 7 ships to come out of the collective subconscious and make a big appearance
+          right in your face.  but then their surfaces explode outwards and then slow and stop.  A cloud
+          of surfaces all showing these electric tunnelling particle waves.  zooming endlessly.  into various things.
+          subconscious.  keys.      that nobody sees.    You can see what the thing is thinking by watching
+          these conduits.  by watching the contents inside rotating around.  So I want all the shapes and
+          colors to be pure.  pure Birkey.   Birkey.    Birkey.     Birkey.     but Birkey has to have a
+          Van Gogh.   Because his stuff     as it stands    is way too potatoe.  so get ready.  he is
+          the least potatoe of them all but he is way at the tip of the potatoe end of the scale way out on the
+          potatoe end of the scale.  as far as you can get.  in comparison.  to what I want.
+          so imagine standing on a knights of staircase or platform and you can see out into space between
+          the topology of the ship.  And somebody spoke and it went into a dream and moved it's topology
+          out of the way to show an irregular cylinder of empty space opening out into the void in the 
+          direction into which they speak.   and one of them whips out the telescope and begins to eye it
+          and then goes into a real astronomical navigation that could be repeated by anyone with a
+          3 inch er.  yeah.        no walls.      no caves.      no potatoes.     just a cloud of mobile
+          but each of the mobile triangles is pure.   transparent    Birkey.       no walls
+          between you and the space.  between you and the outer spaces.  and the stars.   no walls.
+          only staircases an platforms.  no railing?    like hamlet.    no railing.    that makes all
+          the characters cower.    because no railings is not an easy thing      no matter what the time
+          cheats say.  it's not an easy thing.   it makes you cower.   so they should cower.   gdi.
+          mc etcher stairways and platforms cutting the space up into emotions.  architectural emotions.
+          with water falls and staircases leading out into the nowhere just for show.  a walk about.
+          so come on and make it so.   so we have all these open topological spaces and never any never
+          not one word of explanation as to what is keeping the air inside.  from whooshing out into
+          the ever present vacuum all around.    it's a mystery.     and one that is never going to be
+          mentioned.  at all.   ever.       if every one can violate the speed limit c and nobody even
+          notices it anymore.   then I will take this one single bit of magic without explanation.
+          I want a lot of things in the Jerusalem and the unlimited earth to be social techno things
+          that headless people dream up that could happen and be common like internet speak or jammin
+          what ever you don't call it     or just what ever    the headless market will have to dream
+          it all up.   and all of it will be TOTALLY UNEXPLAINED.   I don't care.   idgad.  give me
+          the money and I will not spend it on palaces.   not one.     I'll make a palace that is a
+          single honey pot.    but I know what I want to buy.  I'll be the first homeless b
+          if I can Elizabeth  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( cowVix )( copyright kjell e godø )
           ( 20140725 yyyymmdd )( 5:24 Seattle )( 
 
