@@ -546,6 +546,16 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 
           4th time, breasts, resists, gives in, descriptions, imagining the daughter
 
+          she can keep him going because he is very young if she wants but then he can't stop
+          because he's already empty so he is trapped again and starts asking her to have
+          mercy and to buck him off like a jockey off a horse which she may or may not do if she doesn't
+          then he has to try to do it himself and it's not good because she is so perfect 
+          and even younger than him even though his birthday is the same as hers his only 
+          hope of getting anything done this day is for her skin to wear out so she kicks
+          him off for that reason because if he has to do it himself his brains will be 
+          split in twain.  and it hurts really really well and makes it really hard keep 
+          up and people start not complaining.
+
           without glory         pray tell where     please fix Vix
 
           
@@ -711,7 +721,7 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 
 
 
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( white sex )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
           up you hazard )( copyright kjell e godø )( 20140624 yyyymmdd )
           ( 6:06 Seattle )( I would like to create a different way of cussing 
@@ -754,11 +764,11 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           others just happen to be taken this month so why not.  - You need
           to be settled down.  And looks to she's looks to she might be just
           the girl to do it. -  In answer to you query <a pause> <reading>
-          <waiting> -- mm I didn't say anything -- - in answer to your query 
+          <waiting> -- mm I didn't ask anything -- - in answer to your query 
           you're too polite to ask - and I really shouldn't answer you 
           but I will - <sly glint> - yes - you're thinking - God help you 
           - what is her great fault - that we are saddling her with you 
-          - on such short notice - you will rue that thought - her greatest
+          - on such short notice -     you will rue that thought - her greatest
           fault - it's strange but true - is that she's too perfect.  And
           because of this no one will touch her with a tent pole and she 
           sits alone every night sewing things for people.  Who just can't 
@@ -767,26 +777,26 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           Though they try to talk to her.  To be with her.  They just have
           to turn away before too long.  And flee.  Making apologies that
           drift back up to her as they quickly take their leave feigning
-          bladder problems.
+          bladder problems. -
 
-          the thought of her being shunned in this way draws up a involuntary like in him
+          <the thought of her being shunned in this way draws up a involuntary like in him
           he knows the feeling well he feels his mouth his jaw solidifying
           he hears his sound slowing down to the point of dry pained wide eye looks
           he feels his brain turning to mud and then wild rays bursting out of the thick soup
           that he watches never knowing what calamity they will soon return
           on peoples faces
           bracing
-          for it
+          for it>
 
 
 
-          the elder is reading
+          <the elder is reading
           he sees it
           and he knows 
           where it comes from
           but he can't really feel it
           he doesn't know
-          but he puts his hand up on Kiev's shoulder
+          but he puts his hand up on Kiev's shoulder>
           ( and whispers )<---[ a breach ( this text appeared all by itself without kjell typing it in ) ]
           ( kegNotes-- ( what the hell does he whisper )( I don't think he whispers here )( I'm trying to 
               think of something )( but nothing is coming ) )
@@ -800,19 +810,43 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
                   because they are all deaf
                   and they don't even know they are listening
                   or what they are listening to
-                  and he whispers softly ) <---[ doing ]
+                  and he whispers softly ) <---[ doing ( todo:: ( 20140727 yyyymmdd ) delete ) ]
               remember the name lizbet garrikon
               where you're going
-              you're going to need it )<---[ Lizbet Garrikon is Lawrence Garrikon's good sister ]
+              you're going to need it )<---[ Lizbet Garrikon is Lawrence Garrikon's good sister 
+                                             ( comment::-- ( 20140727 yyyymmdd )( 14:15 Seattle ) 
+                                                 what the hell is this.  I need plot
+                                                 notes.  Because I forgot what this is.  I think she is outside of
+                                                 the Amish areas somewhere in the unlimited earth?  So Fredrick is
+                                                 prophesying that Kiev is leaving the Amish area.  I guess.  Can't
+                                                 remember now.  I think I need to stop being reluctant and keep
+                                                 coming back here more often and stop waiting for the next trance.
+                                                 because the next trance can't connect up with what is already
+                                                 here.  it just has to go and if it goes it will have to do its own
+                                                 thing and how will that link up with what is already here.  maybe it
+                                                 could be linked up later.  because if I come here without any trance
+                                                 then the whole thing seems kind of dead.  I can't feel it.  I don't
+                                                 know what to do next.  I'm not compelled to do anything.  I feel
+                                                 like a programmer.  coding something up.  distant.  how can I do
+                                                 it if I feel so distant.  but if I just keep coming back here 
+                                                 enough to keep everything up to date in my memory then if the
+                                                 next trance comes maybe it will build off of what is already here.
+                                                 yeah.       I think Lawrence Garrikon is the guy with the red
+                                                 dot that goes into his finger.  yeah.   the source.  I should 
+                                                 call up the source.  but how.  how do I keep my distance.
+                                                 don't ever go over there or have any kind of congress other
+                                                 than just cell talk.  get a different cell.  phoey.  forget
+                                                 about it.  what do I need it for.  go to storycore instead.
+                                                 enough. ) ]
                                                               ( who:doing:saying-- ( elder-- Fredrick Garrikon )(
               another sly glint ) )
           ( who:doing:saying-- ( Kiev )
               ( Kiev doesn't know what the hell the elder just said
-              and Kiev doesn't know if he likes all these sly glints he is getting
-              his stomach starts to turn
-              like finding out your father was a chicken farmer who took to raising men 
-              and then slaughtering them
-              just like chickens in huge well designed and well constructed structurally cement pires 
+                  and Kiev doesn't know if he likes all these sly glints he is getting
+                  his stomach starts to turn
+                  like finding out your father was a chicken farmer who took to raising men 
+                  and then slaughtering them
+                  just like chickens in huge well designed and well constructed structurally cement pires 
               )<---[ doing ]
           )<---[ Kiev ]
                                                               ( who:doing:saying-- ( elder-- Fredrick Garrikon )
