@@ -381,8 +381,49 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( G )( copyright kjell e godø )
+          ( 20140802 yyyymmdd )( 21:14 Seattle )( 
+
+          ( [_x_]::-- 20:29 ( 50 ) Write the previous nearest todo bullet & Think ( maybe at first 
+          you believed what you were saying but then you were just trying to reduce the chaos by 
+          winning and removing the impossible f weight and I was with you but now you are trying 
+          to reduce the chaos again even more by removing me your friend you do not want me as 
+          your enemy G because I can destroy you but I won't I will help you you can't lose 
+          because losing means destruction in your eye I know I used to think like you I know 
+          D did too and everyone in this family because it was just too easy to get us all to 
+          fall into an argument to the death I remember it a long long time ago a total gibbering 
+          break down of unknown proportions is what you are looking at if ever you should lose 
+          and I know it and your kids know it and I like them are now always trying not to be 
+          seen by you skittering into the cracks as you can be heard because you've always got 
+          something to say and once you say it it's a fight to the death whatever good or 
+          nonsense it might be and it quickly becomes just not worth it to fight you to be 
+          heard just like with D so we just agree as quickly as possible to cut the harangue 
+          as short as possible and get on with our own business as quick as you can you've got 
+          generalised anxiety G you told M that you thought that I should just leave and when 
+          M defended my right to be here the same right you defended yourself when you needed 
+          me to let you in here you got bent out of shape you said you would never throw me 
+          out because I was here first but now to reduce the chaos you are in the process of 
+          throwing me out just like K said you would but I said you never would but I can 
+          feel it now you insisted on laying down the law on me and E up front ok I had to 
+          agree with you because M did too and I guess i did also goodbye salon because 
+          you're just too anxious to ever think a salon is a good thing but then previously 
+          you would not allow any law to be laid down by C via C's lawyer friend onto you 
+          so you laid down the law on me and E but you resisted with all the weapons of 
+          acid spite and boiling chemical horror at your disposal to ever allowing any law 
+          to be laid down onto you I see you being bent like a brittle bar of steel by that 
+          what that is driving you until you melt and you no longer know what you are doing 
+          any more and you just want the constant twisting to stop and now you are just trying 
+          to stop living in grand central station by chucking me the one who let you in here out 
+          well this is grand central station and if I have anything to do about it that is 
+          what it will stay so now just as you forced ground rules onto me and E I now 
+          want to force ground rules onto you before you get completely out of hand oh and 
+          I think you should be seen about that generalised anxiety of yours which is melting 
+          you into hot molten pieces before my very eyes maybe there are meds that would 
+          help you to let go of it all stranger things have happened right here and right 
+          now now what's your take what I'm saying is that you are no longer going unseen 
+          under the floor boards and I don't want to let you keep growing like a weed other 
+          than that none of my former attitudes have changed ) )<---[ meta note speech todo Hannah style ]
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Shakespeare )( copyright kjell e godø )
           ( 20140727 yyyymmdd )( 8:51 Seattle )( I want one or more of the episodes to be Shakespeare set
           in the Jerusalem.  Ok    do all of them.    All of them.   up to the quality of Oliviet sorry 's
