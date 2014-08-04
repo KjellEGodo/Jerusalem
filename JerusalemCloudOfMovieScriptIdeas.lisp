@@ -379,8 +379,39 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( stone coal windows )( copyright kjell e godø )
+          ( 20140804 yyyymmdd )( 16:00 Seattle )( 
+
+          ( [_x_]::-- 1:52 ( 429 ) Exercise hauling & Unload the car & Bathroom 1 & Medical ( Lance 
+          K's foot blisters ) , Watch TV kiro ( 60 minutes ) , Watch TV kcts ( masterpiece mystery )
+          & Sleep , Watch TV kcts ( storycorps ( they blasted the family for a few chachkies selling 
+          it cheep no selling it short with leverage on the short side and buying alone on the long 
+          side also with leverage why is it that women want this whole alone thing if they can 
+          possibly get it they sell family short with as much leverage as they can and buy alone 
+          also with leverage is it so they can build castles without anyone telling them anything 
+          about it is it because they want to get away from the other women's watchful eyes ever 
+          since the suburbs were invented after the war women have been selling family short and 
+          buying mass isolation with as much leverage as they possibly can and I want to break as 
+          many windows with chunks of coal as I can just acting out what the women were thinking a 
+          year ago just as soon as they know they can just as soon as they see that breach in the 
+          Line because decades ago even I could see that the family was finished and there would be 
+          no more Sunday dinners never mind that I personally never had any of those dinners myself 
+          and I can see it in G the stress of constant defending conquered space against all 
+          comers she doesn't defend against the Y's why waste a munition on a stretch of line that 
+          never sees any action because the soldiers there are always boobs asleep I know that if 
+          she could she would load up on far out of the money calls on isolation futures expiring 
+          two times previous yesterday to try to find peace from the waring real and imagined tongues 
+          and where are the men asleep between the boobs oblivious yes men with no idea what is 
+          happening occasionally isolating the cause of this or that travesty that grows out of mass 
+          isolation and grousing about it for a line or two and then drifting off again into a 
+          boob's coma I guess then we get what we deserve boobs for everyone and those who have 
+          not will stay the boobs that they are )<---[ meta note ] , ? , Viscious , avett brothers , 
+          quantum activist )<---[ meta note ( quantum mechanics insinuates the existence of God 
+          but this was not something the scientists who first discovered it in the 1930s were 
+          quick to shout except among themselves not wanting to spread the true iron clad lunacy 
+          which was their field just like the Pharisees this was something they would not 
+          believe even if they knew it to be true what is truth ) ] )
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( G )( copyright kjell e godø )
           ( 20140802 yyyymmdd )( 21:14 Seattle )( 
 
