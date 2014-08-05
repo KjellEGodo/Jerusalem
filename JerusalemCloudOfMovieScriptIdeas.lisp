@@ -377,8 +377,27 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( what does she here )( copyright kjell e godø )
+          ( 20140804 yyyymmdd )( 17:26 Seattle )( 
+
+          ( [_x_]::-- 16:46 ( 73 ) Log "1:52 ( 429 )" above into the GitHub Jerusalem , 
+          Keep on rereading it ( to experience whatever the heck it is again )<---[ meta note ( 
+          even if Lauren's there she won't she says I have to work for it no that other she 
+          who knows she won't give it to me for free i have to be a lot cooler if I want to 
+          hang out with the cool kids way up there who said I wanted to hang out with them 
+          where is he now nonsense gibberish it links to being a prey if it never ever works 
+          then that links to that's all she ever wantsed me for and all this no physical harm 
+          that I still enjoy is just an illusion too soon no no get a toe in the door keep 
+          coming back 3 times and then 3 times 3 times more and then get my lawyer to call 
+          her lawyer that's like you will hear me NOW but if you already hear me now why oh 
+          right that would be highly illegal I keep forgetting but who would press the charges 
+          oh right i guess that would be me i keep forgetting yeah i guess I wouldn't trust 
+          me either because it all depends on how time pressed I feel whether i would press 
+          or not but I would not her why would i revenge hatred i have left those poisons 
+          behind mearly the skeletal keys of lost defences are left that I feel compelled 
+          to maintain even as I am still and assume always will be under near constant attack 
+          bforeverut what does she here )<---[ meta note ] ] )<---[ hs ]
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( stone coal windows )( copyright kjell e godø )
           ( 20140804 yyyymmdd )( 16:00 Seattle )( 
 
