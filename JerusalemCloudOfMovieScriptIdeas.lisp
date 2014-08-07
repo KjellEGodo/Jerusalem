@@ -378,69 +378,134 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( YHWH )( copyright kjell e godø )
           ( 20140807 yyyymmdd )( 7:44 Seattle )( 
 
-( [_x_]::-- 15:03 ( 111 ) ---> Work TF & ( Get electronic signatures going & ( Rad called , Buy Seattle Angel Conference Escala tickets ) , Write non disclosure agreement ) )
+          ( [_x_]::-- 15:03 ( 111 ) ---> Work TF & ( Get electronic signatures going & ( Rad called , Buy 
+          Seattle Angel Conference Escala tickets ) , Write non disclosure agreement ) )
 
-( [_x_]::-- 15:09 ( 6 ) Write todos )
+          ( [_x_]::-- 15:09 ( 6 ) Write todos )
 
-( [_x_]::-- 15:36 ( 27 ) Exercise taiChi & ( Pack up , Bathroom 1 & Eli talk ) )
+          ( [_x_]::-- 15:36 ( 27 ) Exercise taiChi & ( Pack up , Bathroom 1 & Eli talk ) )
 
-( [_x_]::-- 15:41 ( 5 ) Exercise hauling & Load the car )
+          ( [_x_]::-- 15:41 ( 5 ) Exercise hauling & Load the car )
 
-( [_x_]::-- 16:02 ( 21 ) Drive to mom's via lake )
+          ( [_x_]::-- 16:02 ( 21 ) Drive to mom's via lake )
 
-( [_x_]::-- 16:19 ( 17 ) Dress & Eat ( 1 milk & mixed nuts ) & Brush teeth , Mom talk )
+          ( [_x_]::-- 16:19 ( 17 ) Dress & Eat ( 1 milk & mixed nuts ) & Brush teeth , Mom talk )
 
-( [_x_]::-- 17:20 ( 61 ) Drive to Rad's )
+          ( [_x_]::-- 17:20 ( 61 ) Drive to Rad's )
 
-( [_x_]::-- 17:27 ( 7 ) Trim )
+          ( [_x_]::-- 17:27 ( 7 ) Trim )
 
-( [_x_]::-- 17:39 ( 12 ) Unload the car , Rad talk )
+          ( [_x_]::-- 17:39 ( 12 ) Unload the car , Rad talk )
 
-( [_x_]::-- 18:14 ( 35 ) Load the car , Drive Rad to 4th and Blanchard , Walk to Escala hotel ( ok the food was cheap but good salmon paste not cheap but what about the room razzling Rad up a gear or two I forgot about the room that's where the $70 bucks went these angels are legit a Rad sell ) )
+          ( [_x_]::-- 18:14 ( 35 ) Load the car , Drive Rad to 4th and Blanchard , Walk to Escala hotel 
+          ( ok the food was cheap but good salmon paste not cheap but what about the room razzling 
+          Rad up a gear or two I forgot about the room that's where the $70 bucks went these angels 
+          are legit a Rad sell ) )
 
-( [_x_]::-- 21:30 ( 196 ) Rad talk ( sell rad and this is not wasted ) , ( John Seacrest ( he likes his name , not a law professor ok flattery a miracle somebody is talking to us thank my wing man for that )<---[ the very guy I wanted most today to meet thank rad again ] & Rad ) talk ( whip up a business plan ok running lean lean canvas spreadsheet online business plan site ) , John stands up on the fire place & John talk ( admin stuff for coming contest ) , Everybody sounds off one by one and I make my one line pitch as loud as I can in my awful voice I know it but the music guy I am looking at is visibly sold instant insect 0% or oscar winner ( hmm success )<---[ I guess , just do it and wait see what happens I don't care one way or the other that's what I want ] , ( UW liaison guy ) talk ( gold )<---[ the other guy I most wanted to contact into insect -100% , sold but my voice offends wants to leave but keeps hanging and finally unplugs in a chorus , he gets it quick but has too many other fish to fry galactic level fish choose choose choose etc ] , ( ( music guy insect 0% ) & ( style guy banker insect 25% ) & ( liaison guy insect -100% ) & Rad ) talk ( more awful voice pitching just trying to avoid the treetops but can't liaison guy dominates ) , ( ( music guy ) & ( style guy ) & Rad ) talk ( style guy locks me trees smashing me going down , music guy gets the floor and is pitching very well at first I don't like being stopped but it's a good thing when I ask him about his feed back a long pause insect 15% or my autism is bashing into him ( why is this music guy taking up the air waves , because my voice is rotten it just gave out besides its a good idea I want it but don't know it yet ) , style guy is locking with music guy coming back to earth vibration rattling where is that rattling coming from insect watch restarting wondering if he is still watching me , a quick look as if he can't help it yes he is insect 65% , style guy cancels finance banking angle insect 70% , nobody is checking the door this could be anybody , I know nothing , style guy switches to startup app curator and apparel retailer? 73% , switches from rich to poor ok , honesty link , I ask if he might be interested in our voting system quick as a wink he tells me how I should do it by telling his is already done and why his is better quicker and rejects me clean off seduction 80% a good idea I should do this a way for sites to embed our voting system for free up or down buttons but with a quantity and a button or more for advanced trading functions , we trade cards that we don't have the music guy gives out his cards unbidden and we use his pencil to exchange bodily fluids , I am liking this music charting thing more but I won't know it until tomorrow , Everything breaks up tell me when you launch tell me when You launch , reconnect with my wing man who was chatting up music guy really effective free beta version for Lynn , bugger off , coming back down , exit , going underground , return to crystal state ) )
+          ( [_x_]::-- 21:30 ( 196 ) Rad talk ( sell rad and this is not wasted ) , ( John Seacrest 
+          ( he likes his name , not a law professor ok flattery a miracle somebody is talking to us 
+          thank my wing man for that )<---[ the very guy I wanted most today to meet thank rad 
+          again ] & Rad ) talk ( whip up a business plan ok running lean lean canvas spreadsheet 
+          online business plan site ) , John stands up on the fire place & John talk ( admin stuff 
+          for coming contest ) , Everybody sounds off one by one and I make my one line pitch as 
+          loud as I can in my awful voice I know it but the music guy I am looking at is visibly 
+          sold instant insect 0% or oscar winner ( hmm success )<---[ I guess , just do it and 
+          wait see what happens I don't care one way or the other that's what I want ] , ( UW 
+          liaison guy ) talk ( gold )<---[ the other guy I most wanted to contact into insect 
+          -100% , sold but my voice offends wants to leave but keeps hanging and finally unplugs 
+          in a chorus , he gets it quick but has too many other fish to fry galactic level fish 
+          choose choose choose etc ] , ( ( music guy insect 0% ) & ( style guy banker insect 25% ) 
+          & ( liaison guy insect -100% ) & Rad ) talk ( more awful voice pitching just trying 
+          to avoid the treetops but can't liaison guy dominates ) , ( ( music guy ) & ( style 
+          guy ) & Rad ) talk ( style guy locks me trees smashing me going down , music guy gets 
+          the floor and is pitching very well at first I don't like being stopped but it's a 
+          good thing when I ask him about his feed back a long pause insect 15% or my autism 
+          is bashing into him ( why is this music guy taking up the air waves , because my 
+          voice is rotten it just gave out besides its a good idea I want it but don't know 
+          it yet ) , style guy is locking with music guy coming back to earth vibration 
+          rattling where is that rattling coming from insect watch restarting wondering if 
+          he is still watching me , a quick look as if he can't help it yes he is insect 65% , 
+          style guy cancels finance banking angle insect 70% , nobody is checking the door 
+          this could be anybody , I know nothing , style guy switches to startup app curator 
+          and apparel retailer? 73% , switches from rich to poor ok , honesty link , I ask 
+          if he might be interested in our voting system quick as a wink he tells me how I 
+          should do it by telling his is already done and why his is better quicker and 
+          rejects me clean off seduction 80% a good idea I should do this a way for sites 
+          to embed our voting system for free up or down buttons but with a quantity and a 
+          button or more for advanced trading functions , we trade cards that we don't have 
+          the music guy gives out his cards unbidden and we use his pencil to exchange bodily 
+          fluids , I am liking this music charting thing more but I won't know it until tomorrow , 
+          Everything breaks up tell me when you launch tell me when You launch , reconnect 
+          with my wing man who was chatting up music guy really effective free beta version 
+          for Lynn , bugger off , coming back down , exit , going underground , return to 
+          crystal state ) )
 
-( [_x_]::-- 22:41 ( 11 ) Eat ( pretty good sushi ) & ( Rad & Lynn ) talk ( Lynn gets sold slowly combine action price with crowd funding & Rad remains focused on the paragraph has a wild look in the eye I have not seen ever is he sold finally first sentence first paragraph first page first chapter first book ) )
+          ( [_x_]::-- 22:41 ( 11 ) Eat ( pretty good sushi ) & ( Rad & Lynn ) talk ( Lynn 
+          gets sold slowly combine action price with crowd funding & Rad remains focused 
+          on the paragraph has a wild look in the eye I have not seen ever is he sold 
+          finally first sentence first paragraph first page first chapter first book ) )
 
-( [_x_]::-- 22:53 ( 12 ) Exercise walking & ( Rad & Lynn ) talk & Walk back to stevie )
+          ( [_x_]::-- 22:53 ( 12 ) Exercise walking & ( Rad & Lynn ) talk & Walk back to stevie )
 
-( [_x_]::-- 23:30 ( 37 ) Drive Rad and Lynn to Lynn's , Rad's ( this place is a siv ) & Rad talk ( I got 2 minutes I can't read any of this why doesn't he get it too sceptical too scientific he can't be sold he seems to get it but keeps saying he doesn't get it what's missing ) , Bathroom 1 ( outside ( never again )<---[ take me take my ball and chain ] ) , Load the car , Trim )
+          ( [_x_]::-- 23:30 ( 37 ) Drive Rad and Lynn to Lynn's , Rad's ( this place is 
+          a siv ) & Rad talk ( I got 2 minutes I can't read any of this why doesn't he 
+          get it too sceptical too scientific he can't be sold he seems to get it but 
+          keeps saying he doesn't get it what's missing ) , Bathroom 1 ( outside 
+          ( never again )<---[ take me take my ball and chain ] ) , Load the car , Trim )
 
-( [_x_]::-- 0:10 ( 40 ) Drive home via market aurora the big S Alaska west Seattle west Seattle I-5 I-90 coal creek & Listen Radio 107.7 the end ( amusing static + mumbles ( I am not fan enough to penetrate ) we don't care about why are you on about it then why is it taking up bandwidth ) )
+          ( [_x_]::-- 0:10 ( 40 ) Drive home via market aurora the big S Alaska west 
+          Seattle west Seattle I-5 I-90 coal creek & Listen Radio 107.7 the end 
+          ( amusing static + mumbles ( I am not fan enough to penetrate ) we don't 
+          care about why are you on about it then why is it taking up bandwidth ) )
 
-( [_x_]::-- 0:18 ( 8 ) Exercise hauling & Unload the car )
+          ( [_x_]::-- 0:18 ( 8 ) Exercise hauling & Unload the car )
 
-( [_x_]::-- 0:24 ( 6 ) Eat ( 1 soymilk ) & Refill water jug )
+          ( [_x_]::-- 0:24 ( 6 ) Eat ( 1 soymilk ) & Refill water jug )
 
-( [_x_]::-- 6:34 ( 10 ) Rehook up the CPAP , Sleep )
+          ( [_x_]::-- 6:34 ( 10 ) Rehook up the CPAP , Sleep )
 
-( [_x_]::-- 6:37 ( 3 ) Write todos )
+          ( [_x_]::-- 6:37 ( 3 ) Write todos )
 
-( [_x_]::-- 6:43 ( 6 ) Exercise taiChi & ( Get up , Bathroom 1 , Dress ) )
+          ( [_x_]::-- 6:43 ( 6 ) Exercise taiChi & ( Get up , Bathroom 1 , Dress ) )
 
-( [_x_]::-- 6:46 ( 3 ) Exercise taiChi & Pack up )
+          ( [_x_]::-- 6:46 ( 3 ) Exercise taiChi & Pack up )
 
-( [_x_]::-- 6:49 ( 3 ) Exercise hauling & Load the car )
+          ( [_x_]::-- 6:49 ( 3 ) Exercise hauling & Load the car )
 
-( [_x_]::-- 6:52 ( 3 ) Exercise taiChi & Feed the pets )
+          ( [_x_]::-- 6:52 ( 3 ) Exercise taiChi & Feed the pets )
 
-( [_x_]::-- 7:09 ( 17 ) Idle , Drive to mom's via the lake )<---[ meta insect coins one click trading stg style guy banker not banker retailer insect 65% intense a quick look out of place too quick not looking at what he is looking at he's check it 75% reject seduct I am seducted music animation charts insect 30% 20% wery good pitcher not much insect except that I can really use it starski and hutch 20% i want it no don't burgundi limo burgundi angel ed d , Charlie's produce truck stay local , 107.7 the end still st ill st i ll st i love ell oh waiter check please I've Falllen and I can't get up , system blown , still , detail stevie no f me just assume every push is insect ]
+          ( [_x_]::-- 7:09 ( 17 ) Idle , Drive to mom's via the lake )<---[ meta insect 
+          coins one click trading stg style guy banker not banker retailer insect 65% 
+          intense a quick look out of place too quick not looking at what he is 
+          looking at he's check it 75% reject seduct I am seducted music animation 
+          charts insect 30% 20% wery good pitcher not much insect except that I can 
+          really use it starski and hutch 20% i want it no don't burgundi limo 
+          burgundi angel ed d , Charlie's produce truck stay local , 107.7 the 
+          end still st ill st i ll st i love ell oh waiter check please I've
+           Falllen and I can't get up , system blown , still , detail stevie 
+          no f me just assume every push is insect ]
 
-( [_x_]::-- 7:25 ( 16 ) Exercise hauling & Unload the car )
+          ( [_x_]::-- 7:25 ( 16 ) Exercise hauling & Unload the car )
 
-( [_x_]::-- 9:37 ( 12 ) Write the previous 18 nearest todo bullets , Greta talk ( sell TF to defend my mom flank ) )
+          ( [_x_]::-- 9:37 ( 12 ) Write the previous 18 nearest todo bullets , 
+          Greta talk ( sell TF to defend my mom flank ) )
 
-( [_x_]::-- 9:41 ( 4 ) Greta talk ( camaro defend mom flank ) )
+          ( [_x_]::-- 9:41 ( 4 ) Greta talk ( camaro defend mom flank ) )
 
-( [_x_]::-- 10:05 ( 24 ) ---> Work Invest & Watch TV CNBC ( hockey toy product testing iPad Joe models r&d GitHub models => TF models ) & Eat ( 2 bread & 1 egg & banana & 30 blue berries & 1 orange juice & 1 milk ) )
+          ( [_x_]::-- 10:05 ( 24 ) ---> Work Invest & Watch TV CNBC ( hockey toy 
+          product testing iPad Joe models r&d GitHub models => TF models ) & Eat 
+          ( 2 bread & 1 egg & banana & 30 blue berries & 1 orange juice & 1 milk ) )
 
-( [_x_]::-- 10:12 ( 7 ) ---> Work Invest & Watch TV CNBC ( -2% SPX is a correction wtf ) & Write todos )
+          ( [_x_]::-- 10:12 ( 7 ) ---> Work Invest & Watch TV CNBC ( -2% SPX is a 
+          correction wtf ) & Write todos )
 
-( [_x_]::-- 10:26 ( 14 ) Get table blocks monitors toilet paper etc )
+          ( [_x_]::-- 10:26 ( 14 ) Get table blocks monitors toilet paper etc )
 
-( [_x_]::-- 10:49 ( 23 ) Exercise hauling & Load the car , Write cell text to Eli , Drive to Eli's )
+          ( [_x_]::-- 10:49 ( 23 ) Exercise hauling & Load the car , Write cell text 
+to Eli , Drive to Eli's )
 
-( [_x_]::-- 12:06 ( 17 ) Exercise hauling & ( Unload the car , Rehook up the desk on wood blocks , Boot the laptop ) )
+( [_x_]::-- 12:06 ( 17 ) Exercise hauling & ( Unload the car , Rehook up the 
+desk on wood blocks , Boot the laptop ) )
 
 ( [_x_]::-- 12:21 ( 15 ) Log p's , Find missing chargers on the top of my head )
 
@@ -448,15 +513,25 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 
 ( [_x_]::-- 12:49 ( 14 ) Figure the previous elapse times search above for " (  ) " )
 
-( [_x_]::-- 13:24 ( 35 ) Sleep & Sleep think ( I can't take this I didn't ask for this don't put this on me I can't take it if you have to give it to somebody give it to YHWH because I can't take it it's poison to me I can't take it I won't take it don't bring it to me because the only thing I can do with it is reject it because it's toxic poison and it's going to kill me if I let it in because it's not mine I don't want it take it away it's not mine it's not mine it's not mine it will destroy me take it away I don't want to even look at it I won't look at it you can't make me )<---[ meta note who knows I don't want to know it could all be fake anyway stop the dream enough ] )
+( [_x_]::-- 13:24 ( 35 ) Sleep & Sleep think ( I can't take this I didn't 
+ask for this don't put this on me I can't take it if you have to give it to 
+somebody give it to YHWH because I can't take it it's poison to me I can't 
+take it I won't take it don't bring it to me because the only thing I can 
+do with it is reject it because it's toxic poison and it's going to kill 
+me if I let it in because it's not mine I don't want it take it away it's 
+not mine it's not mine it's not mine it will destroy me take it away I don't 
+want to even look at it I won't look at it you can't make me )<---[ meta note 
+who knows I don't want to know it could all be fake anyway stop the dream enough ] )
 
 ( [_x_]::-- 13:36 ( 12 ) Write the previous nearest todo bullet )
 
 ( [_x_]::-- 13:40 ( 4 ) Take the d n f meds )
 
-( [_x_]::-- 15:07 ( 87 ) ---> Work TF & Write e-mails to ( Rad , Lynn , Mark , Aaron , Cyndi ) )<---[ h s l a t t m ]
+( [_x_]::-- 15:07 ( 87 ) ---> Work TF & Write e-mails to ( Rad , Lynn , 
+Mark , Aaron , Cyndi ) )<---[ h s l a t t m ]
 
-( [_x_]::-- 18:49 ( 222 ) ---> Work TF & Eli talk ( design ) & Research business plan software & Eat ( potato humis ) )
+( [_x_]::-- 18:49 ( 222 ) ---> Work TF & Eli talk ( design ) & Research 
+business plan software & Eat ( potato humis ) )
 
 ( [_x_]::-- 19:01 ( 12 ) Write todos )
 
@@ -468,7 +543,8 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 
 ( [_x_]::-- 20:08 ( 16 ) Drive to Batell's )
 
-( [_x_]::-- 20:28 ( 20 ) Call Kris , Bartell's ( 5 V8 & smuckers & newman's & 3 milk ) )<---[ aprox time ]
+( [_x_]::-- 20:28 ( 20 ) Call Kris , Bartell's ( 5 V8 & smuckers & newman's &
+ 3 milk ) )<---[ aprox time ]
 
 ( [_x_]::-- 20:35 ( 7 ) Drive home )
 
@@ -478,9 +554,12 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 
 ( [_x_]::-- 21:13 ( 4 ) Dress )
 
-( [_x_]::-- 22:14 ( 61 ) Watch TV Netflix ( come fly with me ) & Kris talk & Kris sit , Kris talk ( Cheney --money--> HaliburtonOnIraq --money--> Cheney --money--> pubs ) --> cannonFodderSoldiersRidingAroundInCardBoardHumvees )
+( [_x_]::-- 22:14 ( 61 ) Watch TV Netflix ( come fly with me ) & Kris talk & 
+Kris sit , Kris talk ( Cheney --money--> HaliburtonOnIraq --money--> Cheney --money--> pubs ) --> 
+cannonFodderSoldiersRidingAroundInCardBoardHumvees )
 
-( [_x_]::-- 22:38 ( 24 ) Shut down the house & Bathroom 1 & Kris talk & Eat ( Fritos & milk ) , Dress )
+( [_x_]::-- 22:38 ( 24 ) Shut down the house & Bathroom 1 & Kris talk & Eat 
+( Fritos & milk ) , Dress )
 
 ( [_x_]::-- 22:44 ( 6 ) Figure the elapse times previous to "19:09 ( 8 )" )
 
@@ -510,57 +589,75 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
 
 ( [_x_]::-- 6:40 ( 4 ) Chore Exercise taiChi & Feed the pets )
 
-( [_x_]::--  6:50 ( 10 ) Get gas & Kris actually waits for me ( - all these years you have been telling me I am wrong well now it's you who are wrong - -- WHAT THE HELL ARE YOU TALKING ABOUT -- - and just about as wrong as you can get - -- YEAH WELL WHAT THE HELL DOES THAT HAVE TO DO WITH LOCAL PRODUCE -- -- HUH -- -- ANSWER ME -- -- I DONT KNOW WHAT THE HELL YOU ARE TALKING ABOUT -- -- BUT I WOULD LIKE TO GET SOME ANSWERS SOME ANSWER FROM SOMEBODY I CAN TRUST EXCEPT EVERYBODY I THOUGHT I COULD TRUST TURNED OUT TO BE LIERS SO NOW I DONT TRUST ANYONE -- -- SO THATS MY PROBLEM -- -- AND NOW YOU SEEM TO BE TALKING NOTHING BUT GIBBERISH -- -- I DONT GET IT -- -- YEAH I DON -- )
+( [_x_]::--  6:50 ( 10 ) Get gas & Kris actually waits for me ( - all these years 
+you have been telling me I am wrong well now it's you who are wrong - -- WHAT THE
+ HELL ARE YOU TALKING ABOUT -- - and just about as wrong as you can get - -- YEAH
+ WELL WHAT THE HELL DOES THAT HAVE TO DO WITH LOCAL PRODUCE -- -- HUH -- 
+-- ANSWER ME -- -- I DONT KNOW WHAT THE HELL YOU ARE TALKING ABOUT -- 
+-- BUT I WOULD LIKE TO GET SOME ANSWERS SOME ANSWER FROM SOMEBODY I CAN 
+TRUST EXCEPT EVERYBODY I THOUGHT I COULD TRUST TURNED OUT TO BE LIERS SO 
+NOW I DONT TRUST ANYONE -- -- SO THATS MY PROBLEM -- -- AND NOW YOU SEEM 
+TO BE TALKING NOTHING BUT GIBBERISH -- -- I DONT GET IT -- -- YEAH I DON --
+- that wasn't us - -- CHARLIE'S GROCERIES SOMETHING -- -- LIKE 3 TIMES NOW --
+- I don't know what that was I didn't do that - -- YOUR TELLING ME I HAVE
+BEEN TAKING ADVICE FROM RANDOM COINCIDENCES -- - I guess so - -- OH WHATS THE
+DIFFERENCE -- -- ALL I WANT TO DO IS BE ABLE TO TEST THE ADVICE RAD TO SEE
+IF IT IS GOOD ADVICE OR NOT -- -- I DONT CARE WHERE IT COMES FROM -- -- GOOD
+ADVICE IS GOOD ADVICE I DONT CARE WHERE IT COMES FROM -- -- IF I CAN TELL IF
+IT IS GOOD OR NOT THEN I DONT CARE WHERE IT IS COMING FROM -- -- RANDOM
+COINCIDENCES MIGHT BE THE BEST SOURCES FOR ALL I KNOW -- - f - -- I GIVE YOU
+24 HOURS AND THEN I PULL THE PLUG -- - 75% - -- 77% -- )
 
 ( [_x_]::-- 7:07 ( 17 ) Drive to mom's via the lake )<---[ meta note note ]
 
 ( [_x_]::-- 7:10 ( 3 ) Listen Radio ( 107.7 , 105.3 )(  ) )
 
-( [_x_]::-- 7:22 ( 12 ) Exercise hauling & ( Unload the car , Eat ( 1 milk ) , Rehook up the iPad ) )
+( [_x_]::-- 7:22 ( 12 ) Exercise hauling & ( Unload the car , Eat ( 1 milk ) , 
+Rehook up the iPad ) )
 
-( [_x_]::--  (  ) Write todos )
+( [___]::--  (  ) Write todos )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  ) Get table video monitors )
+( [___]::--  (  ) Get table video monitors )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  ) Figure the elapse times way up above where they are missing )
+( [___]::--  (  ) Figure the elapse times way up above where they are missing )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  ) Kris talk ( start up the company ) )
+( [___]::--  (  ) Kris talk ( start up the company ) )
 
-( [_x_]::--  (  ) Wash , Dress )
+( [___]::--  (  ) Wash , Dress )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  )  )
+( [___]::--  (  )  )
 
-( [_x_]::--  (  ) Get table blocks monitors toilet paper etc )
+( [___]::--  (  ) Get table blocks monitors toilet paper etc )
 
-( [_x_]::--  (  ) Log on )
+( [___]::--  (  ) Log on )
 
 
 
