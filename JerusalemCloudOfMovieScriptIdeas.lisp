@@ -502,162 +502,162 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( [_x_]::-- 10:26 ( 14 ) Get table blocks monitors toilet paper etc )
 
           ( [_x_]::-- 10:49 ( 23 ) Exercise hauling & Load the car , Write cell text 
-to Eli , Drive to Eli's )
+          to Eli , Drive to Eli's )
 
-( [_x_]::-- 12:06 ( 17 ) Exercise hauling & ( Unload the car , Rehook up the 
-desk on wood blocks , Boot the laptop ) )
+          ( [_x_]::-- 12:06 ( 17 ) Exercise hauling & ( Unload the car , Rehook up the 
+          desk on wood blocks , Boot the laptop ) )
 
-( [_x_]::-- 12:21 ( 15 ) Log p's , Find missing chargers on the top of my head )
+          ( [_x_]::-- 12:21 ( 15 ) Log p's , Find missing chargers on the top of my head )
 
-( [_x_]::-- 12:35 ( 14 ) Figure the previous elapse times above up to "23:06 ( 21 )" )
+          ( [_x_]::-- 12:35 ( 14 ) Figure the previous elapse times above up to "23:06 ( 21 )" )
 
-( [_x_]::-- 12:49 ( 14 ) Figure the previous elapse times search above for " (  ) " )
+          ( [_x_]::-- 12:49 ( 14 ) Figure the previous elapse times search above for " (  ) " )
 
-( [_x_]::-- 13:24 ( 35 ) Sleep & Sleep think ( I can't take this I didn't 
-ask for this don't put this on me I can't take it if you have to give it to 
-somebody give it to YHWH because I can't take it it's poison to me I can't 
-take it I won't take it don't bring it to me because the only thing I can 
-do with it is reject it because it's toxic poison and it's going to kill 
-me if I let it in because it's not mine I don't want it take it away it's 
-not mine it's not mine it's not mine it will destroy me take it away I don't 
-want to even look at it I won't look at it you can't make me )<---[ meta note 
-who knows I don't want to know it could all be fake anyway stop the dream enough ] )
+          ( [_x_]::-- 13:24 ( 35 ) Sleep & Sleep think ( I can't take this I didn't 
+          ask for this don't put this on me I can't take it if you have to give it to 
+          somebody give it to YHWH because I can't take it it's poison to me I can't 
+          take it I won't take it don't bring it to me because the only thing I can 
+          do with it is reject it because it's toxic poison and it's going to kill 
+          me if I let it in because it's not mine I don't want it take it away it's 
+          not mine it's not mine it's not mine it will destroy me take it away I don't 
+          want to even look at it I won't look at it you can't make me )<---[ meta note 
+          who knows I don't want to know it could all be fake anyway stop the dream enough ] )
 
-( [_x_]::-- 13:36 ( 12 ) Write the previous nearest todo bullet )
+          ( [_x_]::-- 13:36 ( 12 ) Write the previous nearest todo bullet )
 
-( [_x_]::-- 13:40 ( 4 ) Take the d n f meds )
+          ( [_x_]::-- 13:40 ( 4 ) Take the d n f meds )
 
-( [_x_]::-- 15:07 ( 87 ) ---> Work TF & Write e-mails to ( Rad , Lynn , 
-Mark , Aaron , Cyndi ) )<---[ h s l a t t m ]
+          ( [_x_]::-- 15:07 ( 87 ) ---> Work TF & Write e-mails to ( Rad , Lynn , 
+          Mark , Aaron , Cyndi ) )<---[ h s l a t t m ]
 
-( [_x_]::-- 18:49 ( 222 ) ---> Work TF & Eli talk ( design ) & Research 
-business plan software & Eat ( potato humis ) )
+          ( [_x_]::-- 18:49 ( 222 ) ---> Work TF & Eli talk ( design ) & Research 
+          business plan software & Eat ( potato humis ) )
 
-( [_x_]::-- 19:01 ( 12 ) Write todos )
+          ( [_x_]::-- 19:01 ( 12 ) Write todos )
 
-( [_x_]::-- 19:09 ( 8 ) Eli talk ( design ) )
+          ( [_x_]::-- 19:09 ( 8 ) Eli talk ( design ) )
 
-( [_x_]::-- 19:35 ( 26 ) Exercise taiChi & Pack up & Eli talk )
+          ( [_x_]::-- 19:35 ( 26 ) Exercise taiChi & Pack up & Eli talk )
 
-( [_x_]::-- 19:52 ( 17 ) Exercise hauling & Load the car )
+          ( [_x_]::-- 19:52 ( 17 ) Exercise hauling & Load the car )
 
-( [_x_]::-- 20:08 ( 16 ) Drive to Batell's )
+          ( [_x_]::-- 20:08 ( 16 ) Drive to Batell's )
 
-( [_x_]::-- 20:28 ( 20 ) Call Kris , Bartell's ( 5 V8 & smuckers & newman's &
- 3 milk ) )<---[ aprox time ]
+          ( [_x_]::-- 20:28 ( 20 ) Call Kris , Bartell's ( 5 V8 & smuckers & newman's &
+           3 milk ) )<---[ aprox time ]
 
-( [_x_]::-- 20:35 ( 7 ) Drive home )
+          ( [_x_]::-- 20:35 ( 7 ) Drive home )
 
-( [_x_]::-- 20:54 ( 19 ) Exercise hauling & Unload the car )
+          ( [_x_]::-- 20:54 ( 19 ) Exercise hauling & Unload the car )
 
-( [_x_]::-- 21:09 ( 15 ) Eat (  ) & Kris talk )
+          ( [_x_]::-- 21:09 ( 15 ) Eat (  ) & Kris talk )
 
-( [_x_]::-- 21:13 ( 4 ) Dress )
+          ( [_x_]::-- 21:13 ( 4 ) Dress )
 
-( [_x_]::-- 22:14 ( 61 ) Watch TV Netflix ( come fly with me ) & Kris talk & 
-Kris sit , Kris talk ( Cheney --money--> HaliburtonOnIraq --money--> Cheney --money--> pubs ) --> 
-cannonFodderSoldiersRidingAroundInCardBoardHumvees )
+          ( [_x_]::-- 22:14 ( 61 ) Watch TV Netflix ( come fly with me ) & Kris talk & 
+          Kris sit , Kris talk ( Cheney --money--> HaliburtonOnIraq --money--> Cheney --money--> pubs ) --> 
+          cannonFodderSoldiersRidingAroundInCardBoardHumvees )
 
-( [_x_]::-- 22:38 ( 24 ) Shut down the house & Bathroom 1 & Kris talk & Eat 
-( Fritos & milk ) , Dress )
+          ( [_x_]::-- 22:38 ( 24 ) Shut down the house & Bathroom 1 & Kris talk & Eat 
+          ( Fritos & milk ) , Dress )
 
-( [_x_]::-- 22:44 ( 6 ) Figure the elapse times previous to "19:09 ( 8 )" )
+          ( [_x_]::-- 22:44 ( 6 ) Figure the elapse times previous to "19:09 ( 8 )" )
 
-( [_x_]::-- 22:45 ( 1 ) Write todos )
+          ( [_x_]::-- 22:45 ( 1 ) Write todos )
 
-( [_x_]::-- 22:52 ( 7 ) Floss )
+          ( [_x_]::-- 22:52 ( 7 ) Floss )
 
-( [_x_]::-- 22:58 ( 6 ) Take the f s t meds )
+          ( [_x_]::-- 22:58 ( 6 ) Take the f s t meds )
 
-( [_x_]::-- 23:46 ( 8 ) Watch Movie Netflix ( screamers , Baracka , fiddler , 2001 ) , Sleep )
+          ( [_x_]::-- 23:46 ( 8 ) Watch Movie Netflix ( screamers , Baracka , fiddler , 2001 ) , Sleep )
 
-( [_x_]::-- 0:34 ( 48 ) Watch Movie Netflix ( wander over yonder , Big Bang , Silicon Valley )  )
+          ( [_x_]::-- 0:34 ( 48 ) Watch Movie Netflix ( wander over yonder , Big Bang , Silicon Valley )  )
 
-( [_x_]::-- 0:57 ( 23 ) m )
+          ( [_x_]::-- 0:57 ( 23 ) m )
 
-( [_x_]::-- 6:15 ( 318 ) Sleep , Sleep try ( tea time ) )
+          ( [_x_]::-- 6:15 ( 318 ) Sleep , Sleep try ( tea time ) )
 
-( [_x_]::-- 6:16 ( 1 ) Write todos & Fire up iTunes ( lg shuffle ) )
+          ( [_x_]::-- 6:16 ( 1 ) Write todos & Fire up iTunes ( lg shuffle ) )
 
-( [_x_]::-- 6:19 ( 3 ) Take the d n meds )
+          ( [_x_]::-- 6:19 ( 3 ) Take the d n meds )
 
-( [_x_]::-- 6:30 ( 11 ) Exercise taiChi & ( Get up , Bathroom 1 , Dress & Pack up ) )
+          ( [_x_]::-- 6:30 ( 11 ) Exercise taiChi & ( Get up , Bathroom 1 , Dress & Pack up ) )
 
-( [_x_]::-- 6:33 ( 3 ) Exercise hauling & Load the car )  
+          ( [_x_]::-- 6:33 ( 3 ) Exercise hauling & Load the car )  
 
-( [_x_]::-- 6:36 ( 3 ) Get table blocks monitors toilet paper etc )
+          ( [_x_]::-- 6:36 ( 3 ) Get table blocks monitors toilet paper etc )
 
-( [_x_]::-- 6:40 ( 4 ) Chore Exercise taiChi & Feed the pets )
+          ( [_x_]::-- 6:40 ( 4 ) Chore Exercise taiChi & Feed the pets )
 
-( [_x_]::--  6:50 ( 10 ) Get gas & Kris actually waits for me ( - all these years 
-you have been telling me I am wrong well now it's you who are wrong - -- WHAT THE
- HELL ARE YOU TALKING ABOUT -- - and just about as wrong as you can get - -- YEAH
- WELL WHAT THE HELL DOES THAT HAVE TO DO WITH LOCAL PRODUCE -- -- HUH -- 
--- ANSWER ME -- -- I DONT KNOW WHAT THE HELL YOU ARE TALKING ABOUT -- 
--- BUT I WOULD LIKE TO GET SOME ANSWERS SOME ANSWER FROM SOMEBODY I CAN 
-TRUST EXCEPT EVERYBODY I THOUGHT I COULD TRUST TURNED OUT TO BE LIERS SO 
-NOW I DONT TRUST ANYONE -- -- SO THATS MY PROBLEM -- -- AND NOW YOU SEEM 
-TO BE TALKING NOTHING BUT GIBBERISH -- -- I DONT GET IT -- -- YEAH I DON --
-- that wasn't us - -- CHARLIE'S GROCERIES SOMETHING -- -- LIKE 3 TIMES NOW --
-- I don't know what that was I didn't do that - -- YOUR TELLING ME I HAVE
-BEEN TAKING ADVICE FROM RANDOM COINCIDENCES -- - I guess so - -- OH WHATS THE
-DIFFERENCE -- -- ALL I WANT TO DO IS BE ABLE TO TEST THE ADVICE RAD TO SEE
-IF IT IS GOOD ADVICE OR NOT -- -- I DONT CARE WHERE IT COMES FROM -- -- GOOD
-ADVICE IS GOOD ADVICE I DONT CARE WHERE IT COMES FROM -- -- IF I CAN TELL IF
-IT IS GOOD OR NOT THEN I DONT CARE WHERE IT IS COMING FROM -- -- RANDOM
-COINCIDENCES MIGHT BE THE BEST SOURCES FOR ALL I KNOW -- - f - -- I GIVE YOU
-24 HOURS AND THEN I PULL THE PLUG -- - 75% - -- 77% -- )
+          ( [_x_]::--  6:50 ( 10 ) Get gas & Kris actually waits for me ( - all these years 
+          you have been telling me I am wrong well now it's you who are wrong - -- WHAT THE
+           HELL ARE YOU TALKING ABOUT -- - and just about as wrong as you can get - -- YEAH
+           WELL WHAT THE HELL DOES THAT HAVE TO DO WITH LOCAL PRODUCE -- -- HUH -- 
+          -- ANSWER ME -- -- I DONT KNOW WHAT THE HELL YOU ARE TALKING ABOUT -- 
+          -- BUT I WOULD LIKE TO GET SOME ANSWERS SOME ANSWER FROM SOMEBODY I CAN 
+          TRUST EXCEPT EVERYBODY I THOUGHT I COULD TRUST TURNED OUT TO BE LIERS SO 
+          NOW I DONT TRUST ANYONE -- -- SO THATS MY PROBLEM -- -- AND NOW YOU SEEM 
+          TO BE TALKING NOTHING BUT GIBBERISH -- -- I DONT GET IT -- -- YEAH I DON --
+          - that wasn't us - -- CHARLIE'S GROCERIES SOMETHING -- -- LIKE 3 TIMES NOW --
+          - I don't know what that was I didn't do that - -- YOUR TELLING ME I HAVE
+          BEEN TAKING ADVICE FROM RANDOM COINCIDENCES -- - I guess so - -- OH WHATS THE
+          DIFFERENCE -- -- ALL I WANT TO DO IS BE ABLE TO TEST THE ADVICE RAD TO SEE
+          IF IT IS GOOD ADVICE OR NOT -- -- I DONT CARE WHERE IT COMES FROM -- -- GOOD
+          ADVICE IS GOOD ADVICE I DONT CARE WHERE IT COMES FROM -- -- IF I CAN TELL IF
+          IT IS GOOD OR NOT THEN I DONT CARE WHERE IT IS COMING FROM -- -- RANDOM
+          COINCIDENCES MIGHT BE THE BEST SOURCES FOR ALL I KNOW -- - f - -- I GIVE YOU
+          24 HOURS AND THEN I PULL THE PLUG -- - 75% - -- 77% -- )
 
-( [_x_]::-- 7:07 ( 17 ) Drive to mom's via the lake )<---[ meta note note ]
+          ( [_x_]::-- 7:07 ( 17 ) Drive to mom's via the lake )<---[ meta note note ]
 
-( [_x_]::-- 7:10 ( 3 ) Listen Radio ( 107.7 , 105.3 )(  ) )
+          ( [_x_]::-- 7:10 ( 3 ) Listen Radio ( 107.7 , 105.3 )(  ) )
 
-( [_x_]::-- 7:22 ( 12 ) Exercise hauling & ( Unload the car , Eat ( 1 milk ) , 
-Rehook up the iPad ) )
+          ( [_x_]::-- 7:22 ( 12 ) Exercise hauling & ( Unload the car , Eat ( 1 milk ) , 
+          Rehook up the iPad ) )
 
-( [___]::--  (  ) Write todos )
+          ( [___]::--  (  ) Write todos )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  ) Get table video monitors )
+          ( [___]::--  (  ) Get table video monitors )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  ) Figure the elapse times way up above where they are missing )
+          ( [___]::--  (  ) Figure the elapse times way up above where they are missing )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  ) Kris talk ( start up the company ) )
+          ( [___]::--  (  ) Kris talk ( start up the company ) )
 
-( [___]::--  (  ) Wash , Dress )
+          ( [___]::--  (  ) Wash , Dress )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  )  )
+          ( [___]::--  (  )  )
 
-( [___]::--  (  ) Get table blocks monitors toilet paper etc )
+          ( [___]::--  (  ) Get table blocks monitors toilet paper etc )
 
-( [___]::--  (  ) Log on )
+          ( [___]::--  (  ) Log on )
 
 
 
@@ -665,7 +665,7 @@ Rehook up the iPad ) )
 
 
 
- ) )
+         ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( what does she here )( copyright kjell e godø )
           ( 20140804 yyyymmdd )( 17:26 Seattle )( 
 
