@@ -375,6 +375,142 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
+          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Aristotle Poetics Jerusalem J1 )
+          ( copyright kjell e godø )
+          ( 20140809 yyyymmdd )( 19:35 Seattle )( 
+          ( coverageFormFor:-- ( Jerusalem J1 )
+            ( logLine: )
+            ( brief: )
+            ( plotSummary: )
+            ( comments: )
+            ( idea: )
+            ( story: )
+            ( character: )
+            ( dialog: )
+            ( productionValues: )
+            ( logLine: )
+            ( logLine: )
+            ( logLine: ) )
+
+          ( actionIdeaFor:-- ( Jerusalem J1 )
+            An autistic Amish 22 year old black smith named Kiev living in a 90% correct fake Amish 
+            area set in the 1830s time period has a sequence of copernican experiences culminating 
+            in seeing a little red motor skooter driving across a field off in the distance that only
+            he could see.  But others heard it too but all interpreted it in various chucklehead don't
+            bother me I'm too busy ways.  So Kiev starts searching for what he doesn't know.  And this
+            gets him in more and more trouble with the elders and the rest.  So one of the fake telepathic
+            elders creates a perfect woman out of some software in his head and marries her off to Kiev
+            in order to settle him down or at least fix him to the spot.  With a mess of kids.  etc.
+            She is Aurora created having the maturity of 22 and is created to exactly match the visual sex
+            receptors in Kiev's brain.  So as to be irresistible to him.  So he gets totally sucked
+            into her and can think of nothing else which she loves.  But either something goes wrong
+            and Kiev realises that she is fake or Kiev sees the little red skooter again or both.
+            And he tries to leave but gets blocked by bars he didn't know were there.  And this freaks
+            him out and he struggles to be free but keeps bouncing back.  Some boys from another Amish
+            town he suspects keep tailing him everywhere and he keeps seeing omens left by them everywhere
+            he tries to go they seem to be in front of him as if they could read his thoughts.  And the
+            creepy cliquish silent elders are also somehow getting out in front of him and forcing him
+            to go another way.
+            And Aurora keeps searching
+            for Kiev in a hysterical twist of denial of the creeping dred that she is synthetic.  A
+            harpy or witch or some horrible pestulence meant only to be surgically extricated with a pick
+            axe and shunned clean away.
+            She is on Kiev's tail.  With the women of the town on her tail?  Kiev is on the road to
+            the forest encircling the enclave that no one ever goes down because of a rising dread which
+            has been named and then hushed up and then forgotten long ago.  He comes around the bend and sees the little
+            red skooter parked on the road 100 yards from the forest 300 yards ahead.  Kiev walks slowly up to it over
+            a period of several hours both repelled and fascinated peering through the thick air that gradually
+            clears pixel by pixel.  His mind blown clean off by the
+            exotic metal surfaces and heavenly manufacturing techniques the spokes which register in his brain as
+            God on earth.  Kiev weeps.  Right when he gets a few paces away and is shaking so hard he
+            feels he will surely be knocked over and wind up on the ground he hears a young woman 
+            shrieking behind him in the distance and wheeling sees Aurora back at the bend he first saw the skooter from
+            behind.  She has seen him and stopped rooted to the spot torn as to what to do now.  She 
+            becomes blinded by her tears and wiping them can't see him for several minutes and begins
+            to weep harder.  Finally she just runs remembering what she used to be able to do to him
+            and how much he used to love her just a day or two ago.  And she goes into the ditch.
+            Kiev is also rooted to the spot.  Crystallised.  Watching her struggle to get up and keep
+            coming.  She goes into the ditch 7 times before her eyes clear and then she just starts 
+            running.  At him.  To him.  He can't help disassociating and wondering at her extreme gameness
+            with the words unspoken look at her face bouncing off the ground so nothing is stopping her
+            she is coming on delirious no matter what have I done she can't see where she is going for tears 
+            I'm ready or not what is happening.  All my words are gone.  But then she sees the skooter and 
+            something both clicks in her mind and then
+            anti clicks mystifying and erasing her and she also becomes rooted to the spot some 4 or 5 paces from him.
+            And he turns around and they both stare at it transfixed.  As if Micheal has descended to earth
+            again and they are the ones to see it.  Hmm.  I wasn't going to do this.  oh well.
+
+            And then Scott comes round the bend behind them and hollers a long distance what's going on
+            call.  Which is never returned.  So he gets underway running like the grim death coming on
+            come hell or high water cuffs and is so fixated on his own thoughts that he doesn't see the skooter
+            until he blasts past Aurora giving a wide birth and grabs Kiev from behind to wheel him round like
+            lightning but the skooter blasts him in the eye as Kiev spins and they both wind up on the
+            ground and stay there.  Scott quickly orienting like a belly lizard and chinned begins the rapid
+            assimilation of the new.  But it is overloading even him.  He sees himself reflected in the red
+            shine and the blue sky gradient fade from differential curves to complex boundary lines.  He sees
+            himself he sees his face.  And wonders who that is.  He recognises all the others but and then he
+            realises it's him.  it's his own reflection.  this is what he truly looks like.  zow.  his chin 
+            drops and rekisses the ground.  and sticks.
+
+            Rad zips up his trousers in the shade of the trees where he was collecting some shrooms and
+            stopped to pee.  His rations are gone.  Why can't he get out of this place.  Why is the skooter
+            acting up.  It's always run like a champ.  Now suddenly it's crapping out.  And it's a really
+            long long way to go.  And he can't push it because it won't go unless you drag it across the dirt
+            plowing up little ditches up braiding the earth.  He will have to abandon it.  His trusty machine.
+            What a shit.  Oh fuck me.  I am fucked.  Oh This sucks eggs for breakfast.
+
+            He sees the young woman standing behind the skooter staring at it like some kind of a statue.
+            Like salt.  And then he is struck by how pretty she is.  Not pretty.  She's got a face and a
+            figure on her that will totally screw up all human society anywhere within eye shot of her.
+
+            What is she doing standing here.  Wow.  Look at her.  Owe I'm getting dizzy.  Well this is too
+            high maintenance and a half.  No competition.  Not my type.  One of these throw back re-enacters.
+            Have to ask her what's going on call out from just within earshot.  Will she snap out of it?
+            What about my clothes.  No she's staring at the skooter.  Not me.  Oh right.  Yeah.  
+
+            Hello!  She snaps out of it and looks up.  As he keeps walking up to her he notices the two
+            guys laying on the ground.  A tall one looking up at the sky and a short one with his chin 
+            in the dirt and the key lights in his eyes darting maybe between him and the bike.  As he gets
+            closer his chin rises up off the ground and he fixes onto him and leaves the bike alone.
+
+            What is going on here?  What have they done to my bike.  No signs of damage.  Ok.  I'm still
+            fucked running.  And I can't seem to walk out of here.
+
+            Pick it up.  So Rad starts trying to talk to them.  Ask them what's going on.  Wondering
+            how he can talk to them.  Just turn on the usual slight grin.  It'll be fine.  Just don't 
+            make any sudden moves.  They are clueless.
+
+            The girl is looking at his clothes.  I hope she doesn't react like those others 3 days ago.
+            The short stocky one is rising up off the ground as if to speak.  Fixing on him and shunning
+            now the bike.
+
+            Ok so Rad makes first contact with Kiev and the other two.  They talk about I don't know what.
+            His disregard for the bike spreads like a virus in them and before long they too are taking
+            it for granted.  Excepting Kiev lost in wonder.
+            
+
+          )<---[ actionIdea ]
+          
+          
+
+
+
+
+
+
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( YHWH )( copyright kjell e godø )
           ( 20140807 yyyymmdd )( 7:44 Seattle )( 
 
