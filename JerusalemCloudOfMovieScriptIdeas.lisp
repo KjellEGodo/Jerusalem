@@ -385,8 +385,34 @@ http://creativecommons.org/licenses/by-nc-sa/4.0/legalcode
           ( 20140215 yyyymmdd )(  )(  ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
           ( 20140215 yyyymmdd )(  )(  ) )
-      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: (  )( copyright kjell e godø )
-          ( 20140215 yyyymmdd )(  )(  ) )
+      ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( double cross )( copyright kjell e godø )
+          ( 20140818 yyyymmdd )( 6:09 Seattle )( 
+
+
+          ( [_x_]::-- 10:06 ( 56 ) Get up , Bathroom 1 , Kris talk ( I have something in common with 
+          billionaires : we both can have tobasco )<---[ meta note fragment ( pretty good ad copy )
+          ] & Eat ( akmak & blackberry & peanut butter & tobasco & condensed clam chowder & tobasco 
+          & 3 water & 1 banana & blackberry jelly ) & Fire up Radio kuow ( oil spill etc bottom of 
+          lake Washington , etc ) & Kat play )
+
+
+
+          ( [_x_]::-- 5:46 ( 378 ) Sleep , Sleep think ( procreate ) , Bathroom 2 , Get up , Bathroom 
+          2 & Think ( tabasco is like sex for your taste buds , tabasco is like KY jelly for your 
+          taste buddies , tabasco is like KY jelly for your taste buds , tabasco is like KY jelly 
+          for your taste friends , tabasco is like sex for your taste brains , tabasco is like sex 
+          for your taste's sex receptors , tabasco is like sex for your tongue's sex inceptors ,
+               God is not the one doing this , it's the old double cross , well the parent gets all 
+          the blame doesn't she , it's all her , its all it's fault , she didn't do something and 
+          something and something else right , it's all her fault , yeah yeah yeah , she's the 
+          real culprit , but she never gets blame for nothing , she just stands there slightly 
+          grinning while you go on and on and on forever , I said what I said , there could be a 
+          show somewhere that has retargetable details inserted into it which get reflected back 
+          to multiple targets in order for them to be popped like ticks later on )<---[ meta note 
+          fragment ( ad copy )( plot fragment ) ] , Get hooked up , Fire up iTunes ( dreams and 
+          disasters repeat one ) & Write self this todo bullet )
+
+          ) )
       ( AStoryIdea-named:copyrightBy:startedOnDate:atGMTime:idea: ( Aristotle Poetics Jerusalem J1 )
           ( copyright kjell e godø )
           ( 20140809 yyyymmdd )( 19:35 Seattle )( 
